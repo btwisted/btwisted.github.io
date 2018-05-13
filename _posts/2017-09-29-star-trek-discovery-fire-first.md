@@ -1,0 +1,69 @@
+---
+ID: 40162
+post_title: 'Star Trek Discovery: Fire First'
+author: >
+  Anthony (Kbear!) Nichols | Senior
+  Contributor
+post_excerpt: ""
+layout: post
+permalink: >
+  http://nayahscifi.com/2017/09/29/star-trek-discovery-fire-first/
+published: true
+post_date: 2017-09-29 20:30:21
+---
+<span style="font-size: 12px; color: #000000;"><strong>Title</strong>: Star Trek: Discovery Season 1 Episode 1: "Vulcan Hello"</span>
+<span style="font-size: 12px; color: #000000;"> <strong>Genre</strong>: Adventure, Drama, Science Fiction</span>
+<span style="font-size: 12px; color: #000000;"> <strong>Platform</strong>: Streaming - CBS All Access</span>
+<span style="font-size: 12px; color: #000000;"> <strong>Director: </strong>David Semel</span>
+<span style="font-size: 12px; color: #000000;"> <strong>Writers</strong>: Bryan Fuller and Akiva Goldsman</span>
+<span style="font-size: 12px; color: #000000;"> <strong>Rating</strong>: TV-14</span>
+<span style="font-size: 12px; color: #000000;"> <strong>Release</strong>: September 24, 2017</span>
+<span style="font-size: 12px; color: #000000;"> <strong>Cast: </strong>Sonequa Martin-Green, Michelle Yeoh, Doug Jones, James Frain</span>
+<span style="font-size: 12px; color: #000000;"> <strong>Feature image</strong>: <a href="https://blogs-images.forbes.com/scottmendelson/files/2017/09/MV5BMjMyOTA3NDM1M15BMl5BanBnXkFtZTgwNTg0NzUzMjI@._V1_-1200x828.jpg?width=960">Source</a></span>
+<span style="color: #3366ff;"><strong>[Spoilers]</strong></span>
+<table>
+<tbody>
+<tr>
+<td><iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B01N47VPJG&amp;asins=B01N47VPJG&amp;linkId=01335128e7106c4d3c6ef39a6d1cb433&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe></td>
+<td><iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B00NQXC2YU&amp;asins=B00NQXC2YU&amp;linkId=002453fe2250e0d148193ec5cb18e022&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe></td>
+<td><iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B01NAJ4HMI&amp;asins=B01NAJ4HMI&amp;linkId=289295d98b76424539519b1e3e0d3807&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe></td>
+</tr>
+</tbody>
+</table>
+&nbsp;
+<blockquote>
+<h5><strong>“You’re lost.” “Technically, <em>we</em> are lost.”  Michael Burnham and Philippa Georgiou - Star Trek: Discovery</strong></h5>
+</blockquote>
+Instead of opening with the friendly faces of the Federation, we instead are with a group of Klingon warriors. Their leader T’Kuvma (Chris Obi) is calling for reunification of the Klingon’s twenty-four houses. He wants the united Klingon Empire to halt the advance of the Federation. He mocks them by saying what the Federation always says, “We come in peace.”
+
+On a desert planet suffering from a drought, two women are walking towards a well to help the primitive inhabitants of this planet get water. The two women are Star Fleet officers, Captain Philippa Georgiou (Michelle Yeoh) and her first officer, Lt. Commander Michael Burnham (Sonequa Martin-Green). From their conversation, it’s apparent that they are very close. Burnham: “You’re lost.” Georgiou: “Technically, <em>we</em> are lost” Georgiou thinks that after serving under her for seven years, Burnham is ready for her own command. A storm is brewing behind them, Georgiou appears to have them walking in circles, but she isn’t, they have created the Star Fleet symbol, their ship the USS Shenzhou spots them and beams them up.
+
+<iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B074QS9HMJ&amp;asins=B074QS9HMJ&amp;linkId=fd238226bb2f2e343f0fc6ceee043b46&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe>
+
+In voiceover, Burnham tells us that on Earth it is May 11, 2256. They have received a report about a damaged interstellar transmitter. The Shenzhou leaves to investigate. Burnham argues with Lt. Saru (Doug Jones); he is the science officer and a member of an alien race, the Kelpien. The transmitter is near an asteroid field in a binary star system. They can’t scan it because of interference so Burnham volunteers to take a jet pack and fly over to check it out herself. The mission is dangerous because of radiation, but she is insistent, so Georgiou lets her go. When she gets over there, she discovers an ancient object. She is fascinated by it, but when she begins to explore it, she encounters a Klingon warrior. The warrior attacks her and in the struggle, Burnham kills him. Because of the encounter, she has very little time to get back to the ship before she suffers from radiation.
+<blockquote>
+<h5><strong>"Some may see the color of your skin as Nature's mistake. I call it a mirror, for I see myself in you.”  T'Kuvma - Star Trek: Discovery</strong></h5>
+</blockquote>
+The Klingons are holding a burial ceremony for their fallen comrade. He was their light bearer. When T’Kuvma asks someone to replace him, only an albino Klingon named Voq (Javid Iqbal) volunteers. He is an outcast without a family, but he is a true believer who puts his hand in fire to prove himself. T’Kuvma is impressed and makes him the new light bearer. T’Kuvma: “I recognize you as one who has lived his life on the outside and yearn to be a part of something bigger than himself. Some may see the color of your skin as Nature's mistake. I call it a mirror, for I see myself in you.” He uses the previous light bearer’s death to call again for the Klingon twenty-four houses to reunite to fight the Federation. He sends a message to the other houses. As they shoot their fallen comrade’s coffin into space, they begin to howl to the heavens to welcome this fallen warrior.
+
+<iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B074VG19P5&amp;asins=B074VG19P5&amp;linkId=c73a45bc32b087a354561073562268a2&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe>
+
+Burnham is back on her ship in sickbay badly burned from radiation. She dreams of her childhood with her foster father Sarek, (James Fran) at the Vulcan learning center. A Klingon terrorist attack killed her parents, orphaning Burnham. She awakens and rushes to the bridge to warn Captain Georgiou about the Klingons. No one on the bridge believes her because Star Fleet hasn’t engaged with the Klingons in about 100 years. Saru thinks she might be imagining it because of her concussion. She convinces the Captain to go to red alert. The Captain uses a phase cannon to try to flush them out; they succeed. Saru tells Burnham they need to leave, because he senses death. [Members of his race can sense death because they were the prey on their planet.]
+<blockquote>
+<h5><strong>“The ideal outcome for any Klingon interaction is battle. They're relentlessly hostile, sir. It's in their nature.” Michael Burnham - Star Trek: Discovery</strong></h5>
+</blockquote>
+After sending Burnham back to sickbay, Georgiou contacts Admiral Anderson (Terry Serpico) who appears in hologram form. Burnham is back from sickbay and joins the conversation. He wants Georgiou to hold her position but not to engage with the Klingon ship. Burnham interjects and says the Klingons are ready for battle and they should attack. Burnham: “The ideal outcome for any Klingon interaction is battle. They're relentlessly hostile, sir. It's in their nature.” Admiral Anderson: “Considering your background, I would think you the last person to make assumptions based on race.” Burnham: “With respect, it would be unwise to confuse race and culture.” Burnham begins to annoy the Admiral. After he leaves, Georgiou confides to Burnham that she hopes they can find a diplomatic solution but the soldier in her senses war. The Klingons ship emits a powerful light and sound. It is a signal pulse to the other Klingon houses.
+<blockquote>
+<h5><strong>"Violence brought respect. Respect brought peace. Captain, we have to give the Klingons a Vulcan Hello.”  Michael Burnham - Star Trek: Discovery</strong></h5>
+</blockquote>
+Burnham slips out and privately contacts Sarek who appears to her as a hologram. He heard about their confrontation with the Klingons and he is glad that she isn’t dead. She contacted Sarek to find out how the Vulcans handled the Klingons. He cautions her that the Klingons could be looking for a unifying figure, and a military action against Star Fleet could make that happen. Sarek is afraid Burnham might be out for revenge but she assures him she isn’t. After speaking to him, she rushes back to the bridge to tell Georgiou they have to attack the Klingon ship first. Burnham: “Until formal relations were established, whenever the Vulcans crossed paths with the Klingons, the Vulcans fired first. They said 'Hello' in a language the Klingons understood. Violence brought respect. Respect brought peace. Captain, we have to give the Klingons a Vulcan Hello.”  Georgiou won’t do it, she tells her that isn’t Federation policy; Star Fleet doesn’t attack first. She tells Burnham to stand down. Burnham acts calm and asks to speak to the Captain alone. Once they are alone and she can’t convince the Captain to attack first, she uses a Vulcan nerve pinch to incapacitate her. Burnham walks back on the bridge and pretends the Captain is talking to the Admiral and told her to fire upon the Klingon ship. No one on the bridge is a complete idiot; Saru tells her she is acting against Georgiou’s orders and that this is an act of mutiny. Burnham again orders them to fire on the Klingon ship, but before they can do anything, Georgiou walks in with her phaser on Burnham. Before she can have her removed from the bridge, more Klingon ships appear.
+
+The show opens on Klingons, and it is a new version of them. The have covered the actors in prosthetics. Except for the albino Klingon, the newer Klingons are darker and look more alien. They seem to have more ridges, and they don’t have any visible hair. They are wearing more armor than the Klingons from the past series did. These Klingons only speak in Klingon, and hearing them only speak in Klingon was probably more authentic, it also made them more inaccessible. I read the close captioning of what they said, but I’m not interested in them doing this for the whole season. I don’t think it adds anything for the viewer.
+
+Michael Burnham is the main protagonist of this series, and she primarily dealt with three people, her Captain and mentor, Philippa Georgiou, her crewmate and competitor, Lt. Saru, and her foster father, Sarek. Her relationship with Captain Georgiou was primarily mentor/mentee, with a strong shading of mother/daughter. Burnham is clearly Georgiou’s favorite, and that blinds her to some of Burnham’s shortcomings. Her first officer is clearly brilliant and brave, but she is stubborn and pigheaded. Burnham’s love for her captain, and her need to protect her and the crew made her make some rash decisions, like mutiny. She has a slightly antagonistic relationship with Lt. Saru. She does not seem to respect him because of his cautious or cowardly attitude. They seem to balance each other out, but I think Georgiou appreciates both of them more than they appreciate each other. I’ll talk more about the relationship between Burnham and Sarek in the next episode. Even though he is emotionally distant to her, it’s clear that he loves her, and that she seeks his approval. We know that the Klingons killed her parents and it shades her attitude towards them even if Burnham doesn’t see it herself.
+
+The show is gorgeous. The set designs are finely tuned. The show looks better than the other shows because they have a larger budget. One thing I have a bone to pick with them are the holograms. They had holodecks starting with TNG. During the TOS era, they didn’t have or at least used hologram technology. The hologram technology they used for the show is more advanced than what Picard had. If you are going to make the show a prequel to TOS, don’t have them look technologically more advanced than the other series. I know we have made special effects advancements over the 60’s and 90’s, but it shouldn’t make the technology on the show seem more advanced.
+
+<strong>Grade: B-</strong>
+
+&nbsp;

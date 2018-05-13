@@ -1,0 +1,109 @@
+---
+ID: 5126
+post_title: 'Sherlock Season 4 Episode 2: The Lying Detective'
+author: >
+  Anthony (Kbear!) Nichols | Senior
+  Contributor
+post_excerpt: ""
+layout: post
+permalink: >
+  http://nayahscifi.com/2017/01/12/recap-and-review-of-sherlock-holmes-season-4-episode-2-the-lying-detective/
+published: true
+post_date: 2017-01-12 21:20:21
+---
+by <a href="mailto: kbeartv61@gmail.com">Kbear! </a>on January 12, 2017
+
+[caption id="attachment_5130" align="alignright" width="218"]<img class="wp-image-5130" src="http://nayahsolutions.org/wp-content/uploads/2017/01/eurus_therapist-250x141.jpeg" width="218" height="123" /> John's new therapist[/caption]
+
+Dr. John Watson (Martin Freeman) is meeting with his new therapist. She asks how he is doing. Watson is understandably agitated with her and with life in general. What he won’t reveal is that he is seeing and talking to his late wife Mary (Amanda Abbington). She asks him about Sherlock (Benedict Cumberbatch), he hasn’t seen or heard from him in weeks. He’s holed up in his apartment. Then we see a red sports car being chased by the police and a helicopter drive up into the therapist neighborhood. It looks like she will get to meet the great Sherlock Holmes.
+
+[caption id="attachment_5133" align="alignleft" width="250"]<img class="wp-image-5133 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/culverton_headshot-250x138.jpeg" width="250" height="138" /> Culverton Smith[/caption]
+
+Culverton Smith (Toby Jones) is a well-known entrepreneur and philanthropist. He is in a boardroom with his daughter Faith who walks with a cane and his other associates. He has a big secret to tell them, one that could change everything they think about him once they know. To ensure this doesn’t happen he has a team of nurses in surgical masks parade in with IV bags with the drug TD12 in it to make them forget whatever he is going to tell them. None of his associates are eager to participate but he charms/strong arms them into doing it. Later that same evening we see Faith in a drug induced haze trying to write a note to herself about what her father said. She sees flashes of him talking and scribbles down what she can remember. She finally writes “I need to kill someone”. Her father walks in and takes the note and assures her she won’t remember any of this in about 5 minutes.
+
+[caption id="attachment_5144" align="alignleft" width="224"]<img class="wp-image-5144 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/sher_euros_talk-224x141.jpeg" width="224" height="141" /> Sherlock and Faith talk[/caption]
+
+Three years later Faith is in Sherlock’s apartment telling him about that night. She can remember her father telling them he wants to kill someone but she can’t remember who he wanted to kill or if he actually did it. She hands Holmes the note. He is not his usual self. He is in a state of total disorder. He’s obviously under the influence of some drugs, and he’s in bad shape. His mind is racing, and he’s just rambling. Of course he is Sherlock Holmes so he notices things about her and he is still able to deduce things. He tells her he won’t take her case and sends her on her merry way. He goes in his kitchen to talk to his druggie friend when he realizes what is going on with her. He rushes downstairs to catch her. Faith isn’t doing too hot herself, the strain of that night three years ago has taken a toll on her. Earlier Holmes had held her bag and realizes there’s a gun in it. Faith is leaving to commit suicide.
+
+[caption id="attachment_5146" align="alignleft" width="250"]<img class="wp-image-5146 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/sher_eurus_walking-250x141.jpeg" width="250" height="141" /> Sherlock and Faith take a walk[/caption]
+
+He invites her out to eat chips. Mycroft Holmes (Mark Gatiss) sees from his surveillance of his brother that he’s going out. He calls Watson who is in the middle of a discussion with ghost Mary. So no one in the great Holmes/Watson duo is doing that great. Meanwhile Faith and Sherlock are enjoying chips and each other’s company. Holmes explains how he figured everything out. She says it’s amazing, she jokes she was talking about the chips. They notice a helicopter surveying them. Sherlock has them walk in a pattern that spells out “fuck off” to Mycroft. Lady Elizabeth Smallwood (Lindsay Duncan) asks Mycroft about Sherrinford, he tells her it is secure. Meanwhile Sherlock has decided to take her case; in payment he throws her gun in the river. Her cane reminds him of Watson, so he starts rambling about the value of life, how others feel when it’s lost. He finally notices she has disappeared. He starts seeing the scene of that night and figures out that Culverton Smith said he wanted to kill “anyone”. Sherlock realizes that Culverton is a serial killer. He does this in the middle of traffic.
+
+Holmes is back in his apartment and he’s in a totally agitated state. We see him walking up the wall as he explains to his druggie friend how Culverton Smith is a serial killer.
+
+[caption id="attachment_5163" align="alignright" width="250"]<img class="wp-image-5163 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/sher_shooting-250x141.jpeg" width="250" height="141" /> Sherlock in shooting rampage[/caption]
+
+Three weeks later the druggie friend has had enough. Mrs. Hudson (Una Stubbs) comes in and sees that Holmes has totally lost it. His room is covered with pictures of Culverton Smith. Sherlock is waving a gun around and finally starts shooting the pictures.
+
+&nbsp;
+
+Mrs. Hudson gets him a cup of tea but drops the cup, Holmes goes to catch it and puts the gun down. She picks it up and tells him to get his handcuffs. <img class="alignleft size-thumbnail wp-image-5138" src="http://nayahsolutions.org/wp-content/uploads/2017/01/hudson_gun-250x141.jpeg" alt="" width="250" height="141" />We now go back to the scene of the racing red sports car, but instead of Sherlock driving it, it is Mrs. Hudson! It’s her car (benefits of being the widow of a drug dealer). She has Sherlock locked in the trunk. She brought him to John’s therapist so that Dr. Watson could examine him.
+
+[caption id="attachment_5140" align="alignright" width="250"]<img class="wp-image-5140 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/hudson_car-250x130.jpeg" width="250" height="130" /> Mrs. Hudson pleads with John[/caption]
+
+John wants to know how she knew his therapist address. Sherlock told her. He had deduced who John would be seeing before Watson did. John doesn’t want to examine him but Mrs. Hudson convinces him. Sherlock tells him he’s in hell, he describes how horrible a monster Culverton is and tells John he needs his help.
+<div class="mceTemp"></div>
+Since Watson doesn’t trust Holmes, figuring this could be another trick, he wants Molly Hooper (Louise Brealey) to also examine him. She pulls up in an ambulance. Holmes had given her the address two weeks ago. They also get a call from Culverton Smith. Holmes had tweeted that Culverton was a serial killer, so he sent a limo for them so they can meet him. John gets in the limo while Sherlock gets in the ambulance to get examined. When they pull up to the studio Culverton is filming a commercial calling himself a “cereal killer”. Molly tells John if Sherlock continues abusing himself and talking the drugs he’s taking; he’ll be dead in a few weeks.
+
+[caption id="attachment_5143" align="alignleft" width="199"]<img class="wp-image-5143 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/cul_greets_sher-199x141.jpeg" width="199" height="141" /> Culverton greets Sherlock[/caption]
+
+Culverton comes out to greet them. The press is also there; everyone thinks it’s a publicity stunt for Culverton’s cereal. He invites Holmes and Watson to go to a hospital with him to visit sick kids. It’s a hospital he helped get build. They even gave him keys to the joint. When they get to the children’s ward he asks Sherlock to entertain the kids with some of his adventures. Sherlock can’t tell a story to save his life, even with John’s help.
+
+[caption id="attachment_5141" align="alignright" width="250"]<img class="wp-image-5141 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/cul_creepy_patients-250x132.jpeg" width="250" height="132" /> Culverton questions Sherlock[/caption]
+
+Culverton has a question for Holmes, how do you catch a serial killer. The nurse thinks this might be too intense a subject for kids, but Culverton asks how many years she’s been at the hospital and insinuates that her employment could end soon.
+He becomes as creepy AF, creeping out Sherlock, John, the staff, and the kids. Only a rich guy could get away with something like this. The benefit to having the keys to the joint.
+
+[caption id="attachment_5150" align="alignleft" width="250"]<img class="wp-image-5150 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/cul_morgue-250x141.jpeg" width="250" height="141" /> Culverton's morgue[/caption]
+
+Culverton takes Sherlock and John to his favorite room in the hospital; you guessed it, the morgue. Culverton brings up H.H. Holmes, famous American serial killer. He throws the morgue staff out, asking the head of the morgue how long he has worked there. Culverton starts moving the mouth of one of the bodies, disgusting Watson. He monologues about H.H. Holmes and the best way to get away with murder. John asks him point plank if he’s confessing. Culverton in return asks John if he’s a real doctor. Because how can he not tell how high Holmes is, and could anyone believe he is a serial killer just because Sherlock Holmes said he was. Sherlock takes it all in and announces to Culverton he stole his phone and sent a text to Faith; she’s coming to find out the truth about her father.
+
+During the next scene we cut in between two scenes: DI Lestrade (Rupert Graves) asking Watson about what happened in the morgue, and the morgue scene itself.
+
+Faith shows up walking with her cane, except the young woman before them isn’t the same woman we saw in Holmes apartment. They look similar, but it’s clearly not the same women. Sherlock is completely confused. Faith has never met Holmes, and he sounds like a blubbering idiot.
+
+[caption id="attachment_5166" align="alignleft" width="242"]<img class="wp-image-5166 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/sher_confused_better-242x141.jpeg" width="242" height="141" /> Sherlock confused[/caption]
+
+Culverton is immensely enjoying this, and his laughter totally gets to Holmes. Sherlock says Culverton picked up a scalpel but it is Holmes with one in his hand. He lunges towards Culverton but John stops him. Then the saddest thing I have seen on this show happens, John commences to beat the crap out of Sherlock. Culverton of all people asks him to stop. Sherlock says he deserves this, “I killed his wife.” John agrees.
+
+The incident is on the news, but Culverton won’t press charges. He feels sorry for Holmes and has him committed to his hospital in his favorite room. John goes to visit Sherlock and leaves the cane he used to use during the first episode. After John leaves, a secret panel opens and Culverton emerges with rubber gloves on.
+
+[caption id="attachment_5149" align="alignleft" width="250"]<img class="wp-image-5149 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/hudson_mycroft-250x141.jpeg" width="250" height="141" /> Mrs. Hudson scolds Mycroft[/caption]
+
+Mycroft calls Watson to meet him at Sherlock’s apartment. When John gets there Mycroft is there with a crew dismantling Holmes’ meth lab. Egged on by ghost Mary, John asks Mycroft a question about a statement he made earlier about not the first time he’s done this. John figures out that Mycroft had to deal with another troubled sibling. John assumes it’s another Holmes brother, much like Sherlock assumed in the first episode that the sibling who gave John his phone was a Watson brother. Mrs. Hudson explains to Mycroft how his brother thinks. Sherlock is more emotional than everyone gives him credit for. He shoots at problems, and stabs at things. John comes upon the package with Mary’s DVD. They start to play it; John asks her to stop. Mrs. Hudson throws everyone out of Sherlock’s apartment so John can watch his wife’s message. Everyone readily leaves except Mycroft who she calls a reptile for his indecent coldness. We get to see the rest of the DVD from last week. When she told Holmes to go to hell, she is instructing him how to save Watson. Her plan, pick a fight with a bad guy, get yourself in really bad shape, get in serious trouble. Watson won’t accept anyone saving him, but he will go to save a friend. Just an observation but Mary had the worst plan in the world. Basically it’s destroy your life so the other person can save you. Holmes felt guilty enough to implement the plan. What he should have said to her request is, “Is you crazy B?!” John calls Lestrade, one of his officers is outside Sherlock’s hospital room. The door is locked. Watson leaves the apartment in a hurry.
+
+[caption id="attachment_5160" align="alignleft" width="200"]<img class="wp-image-5160 size-full" src="http://nayahsolutions.org/wp-content/uploads/2017/01/sher_hospital.jpeg" width="200" height="129" /> Sherlock in Culverton's hospital[/caption]
+
+Back at the hospital Culverton is telling Holmes he had the hospital built with different architects so that he could have secret passages in the hospital only he knew about. This made it easier for him to kill patients. He asks Holmes why he has set himself up to be at Culverton’s mercy. Holmes asks him to kill him. Smith confesses why he kills; it makes him incredibly happy. Once you kill someone, they become a thing, and Culverton can possess them. Culverton begins to smother Holmes, John bursts into the hospital room in the nick of time. Culverton acts confused, he clearly wasn’t there to kill Holmes. Sherlock tells him he’s recorded his confession. Culverton says they found three recording devices on his clothes, but Sherlock wonders why people always stop at three. He asks John where he thinks the fourth recording devise is. John quickly figures out it’s in the walking cane he left in the room earlier. Holmes had predicted John would do that too.
+
+At the police station Culverton is happily confessing to his crimes. Lestrade looks sick and disgusted. He wants to finish this up in the morning. Culverton finds it so refreshing to get it all out. He figures this will make him really famous in America. Get in line buddy, we have plenty of serial killers of our own.
+
+[caption id="attachment_5168" align="alignleft" width="250"]<img class="wp-image-5168 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/221B-250x141.jpeg" width="250" height="141" /> Residence of Sherlock, John, and Mrs. Hudson[/caption]
+
+Holmes and Watson are back at Sherlock’s place. John, Mrs. Hudson, and Molly are taking shifts to keep Sherlock from using again. Sherlock explains his plan to John. Culverton was the bad guy he decided to go after. He took all those drugs to make himself really sick so Watson would have to save him. One thing that happened he hadn’t planned on was hallucinating about Faith. No one had seen her with him that night, but Culverton’s daughter wasn’t the woman he talked to. How he was able to get the information she supplied him, he doesn’t know. Ghost Mary is there wanting Holmes to wear his famous deerstalker hat. Sherlock asks if John is okay. He’s not but he admits that Sherlock didn’t kill Mary. Just when he’s ready to walk out he hears Sherlock’s phone. The moaning sound is the one Irene Adler uses. Ghost Mary and John quickly figure out that Sherlock had saved her and she’s still alive. Sherlock tries to explain he doesn’t text her back but John tells him to text her. She’s alive and he has a chance to be with her, don’t waste that chance.
+
+[caption id="attachment_5158" align="alignleft" width="141"]<img class="wp-image-5158 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/sher_john_crying2-141x141.jpeg" width="141" height="141" /> Sherlock consoles John[/caption]
+
+He confesses to Sherlock and Ghost Mary that he had cheated on Mary. He texted the woman on the bus every time Mary was busy with Rosie. It never went beyond texting but he wanted more. Mary saw him as the man he wants to be. Ghost Mary tells him to get on with it. John is finally able to let her go. He starts crying and Sherlock comforts him. Later Sherlock reminds him it was only texting and that he has observed they are all human. They go to leave and in honor of Mary he puts the hat on.
+
+[caption id="attachment_5154" align="alignright" width="250"]<img class="wp-image-5154 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/john_therapist-250x141.jpeg" width="250" height="141" /> John returns to therapy[/caption]
+
+We are back where we started. John is at his therapist, but his mood is much better. The therapist asks about Sherlock and Mycroft. We get a scene of Sherlock throwing out potential clients and Lady Smallwood is asking Mycroft out for drinks. Sherlock stumbles upon Faith’s note and realizes someone was there. He uses ultraviolent light to see the hidden message on the note; DID YOU MISS ME!!
+
+[caption id="attachment_5169" align="alignleft" width="250"]<img class="wp-image-5169 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/john_therapist_reveal-250x121.jpeg" width="250" height="121" /> Therapist reveals herself[/caption]
+
+The therapist asks about the other sibling. John realizes he had never mentioned this to her. His guard is up but it’s too late. She explains that she spent an evening with Sherlock having chips. She got the note from Culverton Smith; a mutual friend put them together. (Want to guess who the mutual friend is.)  She uses her Faith voice. She takes off her glasses and removes her contacts. She has blue eyes. We see a plastic flower in her hair, the same one John had in his hair the time he met the woman on the bus. To John’s horror, this is the same woman. She pulls a gun on him and warns him he’ll meet the same fate the actual therapist who owns this home met. She introduces herself, her name is Eurus, it’s Greek for East Wind. Her parents liked giving their children strange names like Mycroft and Sherlock. Didn’t John consider the secret brother might be a secret sister. John's face twists in shock; Eurus Holmes decides to shoot him.
+<p style="text-align: center;">***</p>
+
+
+[caption id="attachment_5057" align="alignleft" width="250"]<img class="wp-image-5057 size-thumbnail" src="http://nayahsolutions.org/wp-content/uploads/2017/01/KBear-250x141.png" width="250" height="141" /> Kbear![/caption]
+
+Are you kidding me!! I thought last weeks ending was crazy. The therapist and the woman on the bus were Eurus Holmes (Sian Brooke). A fun fact, Sian Brooke is a noted stage actress and she starred opposite Benedict Cumberbatch in Hamlet last year. I would have never guessed this, and I clearly didn’t. I thought the therapist asked a few too many questions about Sherlock, but everyone is curious about the famous detective, so it didn’t raise any red flags. I couldn’t tell the difference between the two Faiths. In the boardroom scene, the scene was very dreamlike, and it was even harder when she was writing the note. Even after watching it a few times I’m not sure if the actress who was the real Faith (Gina Bramhill) was in those scenes. The scene with fake Faith and Sherlock was really great. They seemed to really hit it off. I’m glad it wasn’t leading to a Game of Thrones situation. Her final scene with Watson was outstanding. She had me completely terrified. We see what the Holmes intellect is like when it’s used for pure evil. Earlier in the show, Lady Smallwood asked Mycroft about Sherrinford and he said it’s secure. I’m going to guess Sherrinford is some type of high security metal hospital for the criminally insane, where Euros was a guest. Obviously it wasn’t that secure.
+
+The shots in this episode were quite creative, starting with the scene in the boardroom and Faith trying to write the note. The surreal night Sherlock and Euros spent eating chips. Sherlock piecing the mystery together and ending up in the middle of the street in traffic. Sherlock walking up the wall. Sherlock being in a drugged up condition gave the director license to try anything. The director Nick Hurran did a fantastic job.
+
+The acting was top notch as usual. Special mention must be given to Benedict Cumberbatch. He is always great as Sherlock Holmes, but he stepped it up a notch for this episode. He showed a much weaker and vulnerable Sherlock, but still was able to maintain his arrogant edge. Martin Freeman was also great. Watson’s grief was believable and poignant. The fury he exhibited when beating Holmes in the morgue was frightening. Last but not least is Una Stubbs, this was a standout episode for Mrs. Hudson. From taking the gun from Holmes, her wild drive in the red sports car, and getting Watson to help his friend, she was in complete control. My only complaint in the acting department was Toby Jones. Sometimes I thought he went too broad, but he was very creepy and chilling as Culverton Smith. You’d think someone would notice it, but if you’re rich enough, people will just assume you’re eccentric.
+
+Maybe my favorite episode since “A Scandal in Belgravia”. Usually the second episode of the season is the weakest. This one is the exception.
+
+<strong>Grade: A</strong>

@@ -1,0 +1,92 @@
+---
+ID: 32884
+post_title: 'Orphan Black &#8211; Series Finale: The War is Over, Now What?'
+author: >
+  Anthony (Kbear!) Nichols | Senior
+  Contributor
+post_excerpt: ""
+layout: post
+permalink: >
+  http://nayahscifi.com/2017/08/16/orphan-black-series-finale-war-now/
+published: true
+post_date: 2017-08-16 01:26:51
+---
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"><strong>Title</strong>: Orphan Black Season 5 Episode 10: "To Right the Wrongs of Many"</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Genre</strong>: Science fiction, Biopunk, Drama, Thriller</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Platform</strong>: TV – BBC America</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Director: </strong>John Fawcett</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Writers</strong>: Renee St. Cyr and Graeme Manson</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Rating</strong>: TV-PG</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Release</strong>: August 12, 2017</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Cast: </strong>Tatiana Maslany, Jordan Garvaris, Maria Doyle Kennedy</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Feature image</strong>: <a href="https://ewedit.files.wordpress.com/2017/08/djhf1.jpg?w=2700">Source</a></span>
+
+<span style="color: #0000ff;"><strong>[SPOILERS] </strong></span>
+
+<iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B01LTIB6UO&amp;asins=B01LTIB6UO&amp;linkId=e43576f3753c649946da2f9b84a2ee03&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe>
+<blockquote>
+<h5><strong>“How could you let a woman in labor escape!?” P.T. Westmorland - Orphan Black</strong></h5>
+</blockquote>
+[Flashback] Sarah Manning (Tatiana Maslany) and Siobhan Sadler (Maria Doyle Kennedy) are sitting in their car outside a Planned Parenthood. "Have you thought this through?" Mrs. S asks, “Do you want to have this baby?” “Raise a child?” She tries to explain the responsibilities of raising a baby to Sarah, but Sarah is too busy being a brat to listen. [Present] Sarah and Helena (TM) are on the move, as much on the move as you can be when one of the sisters is ready to deliver. Detective Enger (Elyse Levesque) is trying to lockdown the Dyad facility and turn off the blaring alarm. Virginia Coady (Kyra Harper) is still alive after the beat down Helena administered to her, but she looks like she took a severe beating. P.T. Westmorland (Stephen McHattie) walks in and shouts, “How could you let a woman in labor escape!?”
+<blockquote>
+<h5><strong>"You're a shitty partner, Enger." Art Bell - Orphan Black</strong></h5>
+</blockquote>
+Detective Art Bell (Kevin Hanchard) gets the drop on Enger and knocks her out. Art: "You're a shitty partner, Enger." Westmorland is fading; they need Helena so they can get the mutation from the babies’ blood. Westmorland bellows that they can’t isolate the mutation in this room. He wants to put her in the helicopter on the roof and go somewhere more sterile. Coady shows him Helena’s water because she is ready to deliver now. Sarah gets Helena to a storage room and sets her down. Sarah assures Helena that Art was able to track her and he’ll be there soon. She will have to leave Helena to look for medical supplies. She begs Sarah not to leave her; Sarah gives her a big screwdriver for protection and leaves. While Sarah looks for supplies, Coady enters the room. She doesn’t see Sarah and leaves; someone comes up behind Sarah but thankfully, it is Art. Sarah informs Art of the situation and sends him to help Helena while she gets the medical supplies. Art gives her is spare gun for protection. Coady orders her Neo goons to find Enger. They find her handcuffed to a staircase, with her radio missing. Coady calls for radio silence. Westmorland wants a shot, the doctor advises against it but Westmorland insists. After he gives him the shot, he tells him it wasn’t good for a ‘man his age’. Westmorland takes umbrage to this and shoots him.
+<blockquote>
+<h5><strong>“I survived you — <em>we </em>survived you. Me and my sisters, together. This is evolution.” Sarah Manning - Orphan Black</strong></h5>
+</blockquote>
+Meanwhile, Coady enters the room Helena is in and finds hers. Coady: “Ah Helena, let’s try this again.”  She continues to mock Helena, “I guess this is more your style isn’t it. Down here in the filth and garbage.” Art walks in the room but before Helena can warn him, Coady has her gun on him. She makes him drop his weapon and orders him to check Helena to see how much she has dilated. “I learned my lesson getting too close to this one. You’re the midwife,” she orders. Art: “You all right?” Helena: “Most excellent.” Art goes to check on Helena and she shows him her weapon. They are able to lure Coady in to check on Helena herself, and with Helena’s trademark psycho music playing in the background, Helena stabs Coady in the throat. Adios Virginia Coady, you’ll have a friend joining you in hell soon. Sarah is in the operating room, surrounded by plastic. Outside the plastic Sarah hears, “How fitting you return to your cage. All lab rats do in the end,” he gloats. Sarah responds, “You never caged us — not me and Helena, you’ve got nothing to do with who we really are.”  Sarah shoots a few times and hits him. She is relieved for a moment until he attacks her; he tries to suffocate Sarah with the plastic. She eventually overpowers him and kicks him. Sarah walks over to him and says, “I survived you — <em>we </em>survived you. Me and my sisters, together. This is evolution.” Westmorland tries to take credit for them and tells her he lives in Kira; Sarah ends his blabbering by telling him to shut up, and she bashes his head in with an oxygen tank. So long Neolution.
+
+[Flashback] Siobhan tells Sarah that this is her choice. Sarah defiantly tells Siobhan she is keeping the baby. [Present] Sarah joins Art and Helena; she is ready to deliver now. With Art holding her up, Sarah coaches Helena the same way Siobhan coached her when she was delivering Kira. The two deliveries are intermingled, with Sarah saying many of the words Siobhan said to her and intercutting Sarah and Helena straining to deliver. Finally, the twins arrive, and Helena has two healthy boys. Sarah, Helena and Art are crying from joy.
+<blockquote>
+<h5><strong>“She’s not mended.” Helena - Orphan Black</strong></h5>
+</blockquote>
+<u>Time Jump</u>
+
+It is three or six months since the twins’ delivery. Sarah is video chatting with Cosima (TM) and Scott (Josh Vokey). They are helping Sarah study for her GED exam. Helena and the twins are living in Alison (TM) and Donnie Hendrix’s (Kristian Brunn) converted apartment garage. Donnie is a regional manager of a concrete floor company. Cosima, Scott, and Delphine (Evelyne Brochu) are looking for the rest of the Ledas to inoculate with the cure. They have inoculated Krystal and Tony, Art found four more clones for them, and just recently, he found one in Columbia. Cosima is frustrated because they don’t know how many Ledas are out there, nor how many of them could be sick. Felix Dawkins (Jordan Gavaris) is back from a successful art-selling trip from New York. He is surprised that Sarah is selling Siobhan’s house. Sarah points outs they had discussed it, but he is surprised she is moving so fast. He asks her what her plans are for her and Kira (Skyler Wexler). Sarah obviously hasn’t thought this through; she becomes defensive. Helena calls Sarah to remind her of the baby shower; Sarah hasn’t been around lately. Sarah blames it on studying, but promises to be there after the test. Sarah goes to the high school giving the test and looks around at the younger people taking the test. [Flashback] Sarah is being a real bitch to Siobhan outside Planned Parenthood. After Siobhan offers her support, Sarah tells her mum she doesn’t need her support, she doesn’t need anything from her. [Present] Sarah decides not to take the test and walks out of the school.
+
+Guests start arriving for the baby shower. Adele (Lauren Hammersley), Scott, Hell Wizard (Calwyn Shurgold), Kira, Donnie, Alison, their daughter Gemma (Millie Davis) are already there. Art brings his daughter Maya (Ava Arrindell) and Charlotte (Cynthia Galant). Cosima and Delphine arrive fashionably late. Art hugs Helena and asks how she is doing. She is doing fine but she is worried about Sarah. Helena: “She’s not mended.” When Sarah arrives, instead of joining the other guests, she goes into the kitchen alone to drink a beer. Delphine spots her and tries to offer her condolences, “I’ve been trying to find the right words, for you and Siobhan.” Delphine explains how Siobhan gave her strength and the sacrifices Siobhan made. Sarah curtly cuts her off, "She did what she had to do for this. We all did." Outside they are opening presents for the twins and discussing Helena giving the kids rocks to play with. Felix is being mysterious about something; his boyfriend Colin (Nicholas Rose) calls him on it. Felix admits he is meeting someone on the down low.
+<blockquote>
+<h5><strong>“Lying to my kid. Same shit. I carry around all these mistakes; I don’t know how to be happy,” she says tearfully. “There’s no one left to fight, and I’m still a shit mum.” Sarah Manning - Orphan Black</strong></h5>
+</blockquote>
+Finally everyone else finds Sarah and they ask her about the test. She lies and tells everyone she took it and it went okay. Alison mentions Sarah selling her home. She reminds her that Kira, Maya, Charlotte, and Gemma have bonded. Alison: “This is what we fought for, to be sisters — it’s a good thing!” “Freedom looks different to everyone,” Sarah counters. Alison questions whether it is a good idea to take Kira away from her home and family. Sarah angrily responds, “In the house where her grandmother was shot dead.”  She tells Alison to take a bloody cue for once. Later, Sarah is in the backyard by herself after the party has ended. One by one: Cosima, Alison, and Helena join her. They are out there to support Sarah and she finally opens up about not taking the test and the rest of her life. “Lying to my kid. Same shit. I carry around all these mistakes; I don’t know how to be happy,” she says tearfully. “There’s no one left to fight, and I’m still a shit mum.” Her sisters confess their fears. Alison tells them how she was angry at Gemma and said some mean things to scare her. Helena shares this antidote, “Every time I look, the babies are eating sand. I turn around: sand. Where does this sand come from? I don’t know, so I let them eat it.” Cosima didn’t know what to do when Felix handed her one of the babies. She is not maternal at all and wonders if she is selfish or scared. "We're all scared," says Cosima. "And we all make mistakes," Alison adds. “I was a drug dealer, for Pete’s sake!” Sarah thanks her sestras for their support.
+<blockquote>
+<h5><strong>“I have a glass eye, no friends, and no identity unless I want to be found. Leaves little room for elitism.” Rachel Duncan - Orphan Black</strong></h5>
+</blockquote>
+Felix goes outside and gets inside a dark sedan. The passenger in the back seat is Rachel Duncan (TM). Felix: “Rachel.”  Rachel: “Felix. You’re looking well.”  Felix: “Who’s this, then? Got a new manservant already?”  Rachel: “This is Yusef. My Uber driver.” Felix jokes that she has joined the rest of the 99%. Rachel: “I have a glass eye, no friends, and no identity unless I want to be found. Leaves little room for elitism.” Rachel hands Felix an envelope. She asks how the boys are. Felix: “Rachel, you know you can’t go in.” Rachel says she doesn’t need to see another face like hers. Felix can see the pain that Rachel is in; he wishes her a nice life. He leaves, and Rachel sits alone, banished from the Sestrahood forever.
+<blockquote>
+<h5><strong>“My story is an embroidery — many beginnings and no ends, but I will start with the thread of my sestra Sarah, who stepped off a train one day and met herself…” Helena - Orphan Black</strong></h5>
+</blockquote>
+Felix joins the sestras and hands them the envelope. Sarah guesses it is from Rachel. They open it and see that it has all the names, addresses, and medical histories of all of the remaining Leda clones. There are 274 of them out there. “This is all we need to cure the Ledas,” Cosima continues, "They're never going to have to go through everything that we did." Helena produces her journal. Helena: “I finished my book. It’s a story about all my sestras. I call it Orphan Black."  "Why? That's weird," says Sarah.  "It's cool!" Cosima insists. "Because we're all orphans."  “We're not Black," Alison, points out. They laugh and Helena starts reading from her book, “My story is an embroidery — many beginnings and no ends, but I will start with the thread of my sestra Sarah, who stepped off a train one day and met herself…”
+
+Alison is playing the keyboard when Donnie walks in sweaty from playing tennis. As he takes off his clothes he starts striping, Alison begins playing striping music. Alison tells Donnie she loves him, and he responds in kind. Delphine is giving an inoculation to the Columbian clone, Camilla Torres (TM); she invites Delphine out for dinner. As she leaves, she nearly sees Cosima, when she gets to the door she pauses and leaves. Cosima jokes that she asked Delphine out. They are going to Brazil next. She and Delphine kiss. Helena is with the twins, she had been calling them orange and purple, she announces to her boys that it is time for them to have names of real men, Helena names them Arthur and Donnie.  Felix, Kira, and Sarah prepare to go to the beach. Where before the house had boxes all over, now it looks lived in, Sarah is staying.
+
+<iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B01F6K59GS&amp;asins=B01F6K59GS&amp;linkId=806ed9f112a7763218e9dfa137cec418&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe>
+<p style="text-align: center;"><span style="color: #0000ff;"><strong>_________________________________</strong></span></p>
+This is the end of Orphan Black. I can’t believe it has been five years already. I remember the first time I watched the show. It premiered right after Doctor Who. The only reason I watched the new show was because it was coming on after Doctor Who and I didn’t feel like changing the channel. Laziness has its benefits sometimes. I enjoyed the first episode, and by episode four, it was my favorite new show. Like nearly everything, it had its ups and downs, but its ups were very high, and its lows were never that deep. If the only thing I had gotten from the show were seeing the mind blowing performance of Tatiana Maslany, watching the show would have been worth it. Fortunately, the rest of the show was great too. Special mention must be given to Jordan Gavaris, Maria Doyle Kennedy, Kristian Bruun, Kevin Hanchard, and Evelyne Brochu; Tatiana Maslany’s performance would not have been as great without their support. All of them are fine actors. I hope to see all of them in future productions.
+
+This was a great series finale. Most of the storylines were wrapped up. We were able to see Westmorland and Coady dispatched in gruesome ways. Clone Club was triumphant and allowed to have happy endings. No one else died, I would have been upset if Cosima or Helena died to prove some stupid point that anyone can die. I’m an adult; I know that all ready, I don’t need a showrunner to teach me that. Sarah had a realistic struggle she had to deal with, mourning her mother and trying to figure out what to do next. Sarah is like a returning veteran from a war, she doesn’t know what to do without a fight. Peacetime can be tough. Fortunately, for Sarah, she has family to lean on. For a lone wolf like Sarah, it’s something she has to adjust to.
+<h5><img class="alignleft size-full wp-image-26053" src="http://nayahscifi.com/wp-content/uploads/2017/07/OrphanBlack_sara_s5ep4.jpeg" alt="" width="302" height="167" />Clone MVP</h5>
+The first clone we met, and whose story we have mostly followed, Sarah Manning. We received a Sarah flashback, to the time she was deciding whether she should keep her baby, and when she delivered Kira. These flashbacks involved Mrs. S. We get to see how far Sarah has gone, from the little brat who seemly was having Kira to piss off Mrs. S, to the woman who is now the matriarch of the Clone Club. She is mature enough now to accept help from others. She has had quite a journey.
+
+Here is an article that summarizes what <a href="http://www.slate.com/articles/technology/future_tense/2017/08/orphan_black_was_never_about_cloning.html"><strong>Orphan Black</strong></a> was about, and it was more than cloning. The cast and crew made this <a href="https://www.youtube.com/watch?v=0ii63RdF1_I"><strong>video</strong></a> to thank the fans. Finally, you can’t end a season without a <a href="https://www.youtube.com/watch?v=jMIGUDVB2Aw"><strong>dance party</strong></a>. I want to thank everyone for reading these recaps. I love being a member of Clone Club.
+
+<strong>Episode Grade: A</strong>
+
+<strong>Season Grade: A-</strong>
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;

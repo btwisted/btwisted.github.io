@@ -1,0 +1,74 @@
+---
+ID: 40444
+post_title: 'Star Trek Discovery: Don&#8217;t Let Emotions Impede Your Logic'
+author: >
+  Anthony (Kbear!) Nichols | Senior
+  Contributor
+post_excerpt: ""
+layout: post
+permalink: >
+  http://nayahscifi.com/2017/10/06/star-trek-discovery-dont-let-emotions-impede-logic/
+published: true
+post_date: 2017-10-06 04:51:53
+---
+<span style="font-size: 12px;"><strong>Title</strong>: Star Trek: Discovery Season 1 Episode 2: "Battle at the Binary Stars"</span>
+<span style="font-size: 12px;"> <strong>Genre</strong>: Adventure, Drama, Science Fiction</span>
+<span style="font-size: 12px;"> <strong>Platform</strong>: Streaming - CBS All Access</span>
+<span style="font-size: 12px;"> <strong>Director: </strong>Adan Kane</span>
+<span style="font-size: 12px;"> <strong>Writers</strong>: Gretchen J. Berg and Aaron Haberts</span>
+<span style="font-size: 12px;"> <strong>Rating</strong>: TV-14</span>
+<span style="font-size: 12px;"> <strong>Release</strong>: September 24, 2017</span>
+<span style="font-size: 12px;"> <strong>Cast: </strong>Sonequa Martin-Green, Michelle Yeoh, Doug Jones, James Frain</span>
+<span style="font-size: 12px;"> <strong>Feature image</strong>: <a href="https://d1ic4altzx8ueg.cloudfront.net/finder-au/wp-uploads/2017/09/star-trek-discovery1.jpg">Source</a></span>
+
+<span style="color: #3366ff;"><strong>[Spoilers]</strong></span>
+<blockquote>
+<h5><strong>“There is no honor without unity. There is no home for any of us, unless it is shared by all.”  T'Kuvma -  Star Trek: Discovery</strong></h5>
+</blockquote>
+The episode picks up where “Vulcan Hello” ended. Twenty-four ships appear from the twenty-four Klingon houses. Lt. Commander Michael Burnham (Sonequa Martin-Green) points this out. This bit of knowledge doesn’t change her situation, security escorts her off the bridge and she ends up in the brig. Burnham has a flashback to the day she met Captain Philippa Georgiou (Michelle Yeoh). She is dressed and acts totally Vulcan. Sarek (James Frain) acts like he’s dropping his kid off to her first day of school. He even tells her to behave. Georgiou welcomes her aboard her ship and says how pleased she is to meet her. Burnham responds, “Respect is earned. As is friendliness.” Strangely, Captain Georgiou didn’t tell Sarek to take his daughter back. She knew it would take time for her to get use to interacting with humans again. She felt like Burnham was worth it, and Burnham knew Georgiou was a woman she could respect. Neither of them knew it would end this way.
+
+<iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B074VG19P5&amp;asins=B074VG19P5&amp;linkId=c73a45bc32b087a354561073562268a2&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe>
+
+The Klingon council wants to talk to the Klingon who brought them there. T’Kuvma (Chris Obi) comes forward. He wants to reunite the twenty-four houses and confront the Federation. One of the council members doesn’t want to talk to him since his house is fallen and he has Klingon outcasts on his ship like Voq (Javid Iqbal). While he doesn’t want to talk to T’Kuvma, the other council members want to listen. T’Kuvma: “There is no honor without unity. There is no home for any of us, unless it is shared by all.” He warns them about the Federation. T’Kuvma: “They are coming. Atom by atom, they will coil around us and take all that we are.” He’s able to convince them to follow him.
+<blockquote>
+<h5><strong>“Why are we fighting? We’re Star Fleet. We’re explorers, not soldiers.”  Ensign Connor - Star Trek: Discovery</strong></h5>
+</blockquote>
+Captain Georgiou comes on his view screen. Other Star Fleet ships have arrived for backup. She wants to talk to him about peace. T’Kuvma isn’t there for peace, but for war. He fires upon the Shenzhou. A major space battle begins the likes I haven’t seen since Deep Space 9. Down in the brig, Burnham can hear the battle, but the ship’s computer won’t tell her anything. She has another flashback when Sarek rescued her after the Klingon terrorist attack. Sarek had to use a Vulcan mind meld to bring her back to consciousness. The bridge takes some damage and one of the injured is Ensign Connor (Sam Vartholomeos). Georgiou orders him to sickbay. Instead of going to sickbay, he winds up at the brig. He is dazed and confused and he tells Burnham she needs to be on the bridge helping them. He asks her, “Why are we fighting? We’re Star Fleet. We’re explorers, not soldiers.” A big explosion happens and the ship suffers a major hull breach. The force field holds the ship together and keeps Burnham from floating out into space.
+<blockquote>
+<h5><strong>“No matter your shame, gather your strength. Find a way to help those who need you.”  Sarek - Star Trek: Discovery</strong></h5>
+</blockquote>
+Burnham sits against her cell wall, looking at the destruction in front of her. Suddenly Sarek appears to her. She isn’t hallucinating; he is talking to her across space. When he mind melded with her when she was a child, it enabled him to communicate psychically with her. He could sense she was in distress. Sarek didn’t project himself across space to scold her. He is there to offer her encouragement. Sarek: “No matter your shame, gather your strength. Find a way to help those who need you.” Burnham stops feeling sorry for herself and kicks into gear. She is able to talk the ship computer into opening a port door because she is going to jump through space to get to the other side of the ship. She jumps through the force field into open space; she only has 20 seconds before she dies. The ship opens the door and she survives.
+<table>
+<tbody>
+<tr>
+<td><iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B01N47VPJG&amp;asins=B01N47VPJG&amp;linkId=01335128e7106c4d3c6ef39a6d1cb433&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe></td>
+<td><iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B00NQXC2YU&amp;asins=B00NQXC2YU&amp;linkId=002453fe2250e0d148193ec5cb18e022&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe></td>
+<td><iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B01NAJ4HMI&amp;asins=B01NAJ4HMI&amp;linkId=289295d98b76424539519b1e3e0d3807&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe></td>
+</tr>
+</tbody>
+</table>
+The Shenzhou has taken such a beating that it is heading towards the asteroid belt. Georgiou hears about the damage on deck 9; that is the deck where the brig is located. She looks worried for Burnham, but she has other problems.  Before they crash into it, Admiral Anderson’s (Terry Sepico) ship, the USS Europa catches it with its tractor beam. His hologram appears and he asks Georgiou what happened. Georgiou: “We hailed, they fired.” He sends a message to T’Kuvma calling for a ceasefire. T’Kuvma agrees to it, but he is lying. T’Kuvma sends a cloaked ship to ram into the Admiral’s ship. In response, the Europa self-destructs. A Klingon ship has the Shenzhou dead to rights, but pulls away instead of taking the deadly shot. Suddenly the Klingon ships warp out. T’Kuvma’s ship remains and he sends this message to the surviving Star Fleet ships, “You only live now to serve as witnesses of Klingon supremacy, to be my heralds. We do not desire to know you but you will know our great houses standing as one under Kahless, reborn in me, T’Kuvma!”
+
+T’Kuvma figures that he has won and he is no longer worried about the Star Fleet survivors. He should be worried about Captain Georgiou, because she hasn’t given up. Even though her ship can’t do anything, she and Lt. Saru (Doug Jones) come up with a plan. Lt. Saru: “We have photon torpedoes. We can’t fire them but we can load the warheads onto a transport, one small enough to evade their sensors. Upon impact, we could deliver a kill shot directly into their hull.” Georgiou: “Devious, Saru. I approve.” Someone has to fly the transport into the Klingon ship, and Georgiou plans to pilot it. Burnham walks in to stop her.
+
+Burnham and Georgiou leave to talk alone. She is upset and hurt that Burnham would mutiny against her. Burnham tries to explain that she was trying to protect her and the crew. Georgiou chastises herself for believing Burnham was ready for her own command. She feels like she never got through the Vulcan surface, to connect with the human. Burnham is hurt but she shares that they can’t kill T’Kuvma. If they kill him, he becomes a martyr. If they capture him, it would lessen him in the Klingons’ eyes. They notice that the Klingons are collecting the bodies of their fallen warriors who are floating in space. They come up with a new plan. They retrieve a Klingon corpse and plant a bomb on it. When the Klingons collect it, it explodes. It disrupts the Klingons’ force field; allowing Georgiou and Burnham to beam over to the Klingon ship to capture T’Kuvma. Once aboard they get into a fight with T’Kuvma and Voq. Burnham fights Voq while Georgiou fights T’Kuvma. Burnham is able to gouge his eyes to defeat him, but T’Kuvma stabs Georgiou in the back, killing her. In her anger and grief, Burnham changes the setting on her phaser from stun to kill and shoots him in the back, killing him. Because Georgiou is dead, they can’t transport her back so Saru beams Burnham back before the rest of the Klingons show up. On the transporter pad, Burnham screams and cries.
+<blockquote>
+<h5><strong>"And we are at war and I am the enemy.”  Michael Burnham - Star Trek: Discovery</strong></h5>
+</blockquote>
+Burnham has messed up again; she killed T’Kuvma and turned him into a martyr. We go to her court martial. She is too defeated to try to mount a defense. The three-person panel asks her if she has any last words. Burnham: “From my youth on Vulcan, I was raised to believe that service was my purpose. And I carried that conviction to Star Fleet. I dreamed of a day when I would command my own vessel and further the noble objectives of this great institution. My dream is over. The only ship I know in ruins. My crew... gone. My captain, my friend. I wanted to protect them from war, from the enemy. And we are at war and I am the enemy.” The panel convicts her of dereliction of duty, assaulting an officer, and mutiny. They sentence her to life imprisonment.
+
+<iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B074QS9HMJ&amp;asins=B074QS9HMJ&amp;linkId=fd238226bb2f2e343f0fc6ceee043b46&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe>
+
+The Klingons score the first victory in this new war. They appear to be a united empire again. T’Kuvma is dead, but someone will replace him. We might find out whom in the next episode. The Klingons are worried about the Federation absorbing them, and they being mixed up with the other races. They want to remain pure and celebrate their culture. Were they marching in Charlottesville?
+
+Michael Burnham was raised on Vulcan. They believe in logic and not letting emotions interfere with reason. When she first joined the Shenzhou she was completely Vulcan. Aside from the ears, you wouldn’t have realized she wasn’t Vulcan. Seven years later she is acting like a raving lunatic. Nearly every action she took in these two episodes was emotional. She wants to attack the Klingons first, this might have been a reasonable response to them, but when Captain Georgiou turned her down; her response is mutiny. How do you jump to such a drastic action? I didn’t feel like the show did an adequate job in showing why she did it. You can understand her frustrations, but not her actions. I get some of it was due to the Klingons having killed her parents, but how much we don’t know. Sarek had told her how rare it is to meet one’s own demons in the flesh. Maybe her Vulcan training couldn’t help her with the rush of emotions of confronting her demons.
+
+Sarek and Burnham’s relationship is interesting. It looks like he is closer to her than he is his son. I don’t remember Sarek talking to Spock across the universe. I guess him being able to do that with Burnham was because of their mind meld. I didn’t know mind melds could do that, but whatever. I liked the flashback when Sarek dropped her off to school, I mean to the ship. It seemed like Georgiou should have given her a juice box and let her take a nap. If you consider Georgiou as a mother figure to Burnham, what was her relationship to Amanda Grayson, Sarek’s wife, who is human? You would think she’d act more human with a human foster mother. I have a lot of questions about the former Lt. Commander Michael Burnham.
+
+I enjoyed the space battle, I always enjoy a space battle, whether it is Star Trek, Star Wars, or The Expanse. This one was well done. The clocked Klingon ship destroying the Europa was memorable. I loved the shot of Burnham in her cell looking out at the destruction of the battle, only being kept from floating in space because of the force field. The fight on the Klingon ship could have been better choreographed. I’m going to miss Michelle Yeoh. Killing her this early in the series opens some doors for the show to go, she was a great captain. The next episode we meet the crew of the USS Discovery. We’ll get a better idea what this show will be then.
+
+<strong>Grade: B+</strong>
+
+&nbsp;
+
+&nbsp;

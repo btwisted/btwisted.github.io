@@ -1,0 +1,76 @@
+---
+ID: 23835
+post_title: 'Orphan Black: It is Always Darkest Before the Dawn (But This Was Really Dark!)'
+author: >
+  Anthony (Kbear!) Nichols | Senior
+  Contributor
+post_excerpt: ""
+layout: post
+permalink: >
+  http://nayahscifi.com/2017/06/22/always-darkest-dawn-really-dark/
+published: true
+post_date: 2017-06-22 23:13:16
+---
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"><strong>Title</strong>: “Orphan Black Season 5 Episode 2: Clutch of Greed<em>”</em></span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Genre</strong>:Science fiction, Biopunk, Drama, Thriller</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Platform</strong>: TV – BBC America</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Director: </strong>John Fawcett</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Writer</strong>: Jeremy Boxen</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Rating</strong>: TV-PG</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Release</strong>: June 17, 2017</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Cast: </strong>Tatiana Maslany, Dylan Bruce, Jordan Garvaris</span>
+<span style="font-size: 12px; font-family: arial, helvetica, sans-serif; color: #000000;"> <strong>Feature image</strong>: <a href="https://postimg.org/image/f78d25687/">Source</a></span>
+
+<span style="color: #0000ff;"><strong>[SPOILERS]</strong></span>
+<blockquote>
+<h5><strong>“</strong><strong>So, is Sarah Manning finally ready to behave?” Ferdinand —Orphan Black</strong></h5>
+</blockquote>
+In her tranquilizer-induced dreams, Sarah (Tatiana Maslany) hears Kira (Skyler Wexler) ask her to listen, and Siobhan (Maria Doyle Kennedy) says, “Sarah, you need to listen to her.” Sarah wakes up and realizes she is in one of the cells at Dyad. (I was wrong about Dyad being out of play; since Rachel is back in charge and planning to restart the cloning program, it is back in play.) Ferdinand (James Frain) stands outside her cell. Using the screens in the cell walls, Sarah is able to talk to Cosima (TM), Alison (TM), and Art. Cosima tells her she was able to take the cure and she will be able work on it further to save the Leda clones. Art is with Alison and says, “You can call it a truce or whatever, but they want you all to come in.” They finally show Kira drawing. Ferdinand: “So, is Sarah Manning finally ready to behave?” He takes Sarah to Rachel’s (TM) office. Rachel and Westmorland want a truce with Sarah. She doesn’t want to take Kira away from her like the last time, but she does want to have Kira stop by after school for non-intrusive tests. They want to study Kira’s “unique physiology”. Sarah’s response, “Shove it up your bleached ass.” Siobhan and Kira agree with Rachel’s plan; Sarah has no choice but to concede.
+
+<iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B00UMDEZBK&amp;asins=B00UMDEZBK&amp;linkId=31a13078c05f1a4a4e014533dedc4068&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe>
+
+Det. Enger (Elyse Levesque) is with Alison and Art in the Hendrix’s home. She is being a bitch to both of them. She won’t let Alison leave the house until they retrieve Donnie (Kristian Bruun) and Helena (TM). Donnie took Helena to a hospital. The tree branch that stabbed Helena injured one of the twins. The doctors want to run more test. Donnie can’t contact Alison.
+
+Cosima and Charlotte (Cynthia Galant) are at lunch. Cosima advises her not to take the vitamins the rest of the citizens of Revival are taking. They see Aisha (Sirena Gulamgaus) and her mother in the cafeteria.  Cosima asks if Charlotte knows her, Charlotte does. Cosima wants to speak to her.
+
+<iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B00HUCF7AO&amp;asins=B00HUCF7AO&amp;linkId=31ad60280bf3a81868f1e788359fafd6&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe>
+
+Felix (Jordan Gavaris) greets Sarah, Kira, and Siobhan. Siobhan turns on the vacuum cleaner so they can talk. She and Felix haven’t bought into Rachel’s plan but they are playing along until they come up with an escape plan. Sarah walks Kira to school. Kira: “Uncle Felix says the trick on the first day of school is to find the biggest kid in the yard and punch him in the nose.” Neolution agents are watching them. Kira’s teacher greets them and tells Sarah she is sorry to hear about her car accident. (Sarah still looks banged up from her island experience.) Playing along, Sarah: <strong>“</strong>Yeah it was a bitch.”
+
+Felix meets with Scott (Josh Vokey), Hell Wizard (Calwyn Shurgold), and Ira (Ari Millen). Since Rachel stabbed Susan, Ira agrees to work with them against her. They need Ira to go back to the Island. Scott was able to get in contact with M.K. (TM). She had gotten in contact with Kira using a game, and he used that to track her down. She is at Felix’s loft.
+
+<iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B00BVMXBDO&amp;asins=B00BVMXBDO&amp;linkId=b9915295e99f02ad715cc9b9080130c1&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe>
+
+Back at the hospital, the doctor is thinking about doing a C-section to deliver the twins prematurely. Helena is understandably against that. The doctor checks the scan and realizes the stabbed twin is no longer injured. The doctor can’t believe the twin is healed and she wants to run more test.  Back on the Island, Cosima gets to talk to Aisha. She has met Westmorland. The Messenger (Geza Kovacs) and Mud (Jenessa Grant) interrupt them; Westmorland wants to see Cosima.
+
+M.K. skypes Sarah. She admits that she is sick. Sarah wants M.K. to join them. She is a sestra and with Cosima working on the cure now, they will be able to save her. If Sarah can get Kira out of Rachel’s surveillance, she and her network can help hide them all.
+<blockquote>
+<h5><strong>“No disrespect, but I know you created me. And I have no interest in being part of your collection. So, what the hell is the point of all of this?” Cosima —Orphan Black</strong></h5>
+</blockquote>
+Mud takes Cosima to meet Westmorland. Cosima enters his study; an old-timey phonograph is playing in the background. There are taxidermy animals all over the room. A picture of Sir Conan Arthur Doyle with an old tortoise that Charles Darwin once owned hangs on the wall. P.T. Westmorland (Stephen McHattie) walks in. For a 170 year-old man, he looks good. He looks like a dandy from the beginning of the 20<sup>th</sup> century. Westmorland attributes his long life to genetics and Neolution. He has seen the tests, and Cosima’s cure is doing very well so far. Once she has cured herself and her sisters, he’d like her to join him and “follow the science.” Cosima: “No disrespect, but I know you created me. And I have no interest in being part of your collection. So, what the hell is the point of all of this?” Westmorland recites a poem his old ‘buddy’ Doyle wrote about cheese. I think it symbolizes not understanding the big picture. He wants her to continue her research and he still hopes she will join their community.
+
+Ferdinand eyes Rachel dressed in white quietly meditating in her office. Ferdinand: <strong>“</strong>You have no idea the volcano that outfit is inspiring in me right now.” He wants to get back to his and Rachel’s S&amp;M routine. Rachel tells him that meeting Westmorland has made her life whole. She had looked for a purpose all her life, and now she has found it. Rachel: “I don't need to hit you, Ferdinand. I don't need to anymore.” Ferdinand is disappointed but tries to hide it. He asks her who is she now. Rachel has to leave so she can pick up Kira from school.
+<blockquote>
+<h5><strong>“Let's go kidnap my daughter.” Sarah  —Orphan Black</strong></h5>
+</blockquote>
+Sarah has other plans. She tells Siobhan and Felix, “Let's go kidnap my daughter.” Sarah sneaks into the school disguised as Rachel. The limp Sarah has from the stab in the leg she received from Rachel on the island sells the limp Rachel has. Kira knows that it is her mom. A few moments after they leave the classroom, Rachel walks in. The teacher is confused; Rachel has already picked up Kira. One of Rachel’s men spots Sarah and Kira, but Sarah tells a teacher in the hallway a strange man is following them. This gives them time to escape. Sarah is ready to leave but is surprised M.K. isn’t in the car waiting for them. Felix tells her she is still at his loft. Sarah tells them to go to the rendezvous spot; she’ll meet them there with M.K. As Sarah pulls out, Ferdinand pulls out from his hiding spot and follows her.
+
+Sarah walks into the loft, but M.K. doesn’t want to go. She is ill and she has been running all her life. She doesn’t want to run anymore. An alert tells her that Ferdinand is coming up. For Kira’s sake, she wants Sarah to go. She’ll slow down Ferdinand, giving Sarah time to get away. Sarah changes clothes. Now M.K. looks like Rachel. M.K.: “Thank you for trying, Sarah. I wish it could have been different for us.” Sarah: “Me too.” Sarah leaves just before Ferdinand burst through the door. He thinks it is Sarah at first but when he grabs her, he sees M.K.’s scars and knows it is M.K. He can fulfill two revenge fantasies, revenge on Rachel for not continuing their relationship, and revenge on M.K. for stealing all his money. M.K. tells him she isn’t afraid and spits in his face. Ferdinand goes crazy, throws M.K. to the floor, and stumps on her chest until she dies. After he kills her, he puts her lamb mask on her chest.
+
+The doctor has Donnie leave the room and she asks why ‘Alison’ is so skittish. The doctor is a neonatal specialist, and hearing neo makes Helena nervous. The doctor produces a long needle to take an amniocentesis. Helena takes the needle and pushes it through the doctor’s cheek, pinning her to the bed. There is a big commotion in the room and Donnie goes to investigate, he sees the scene and catches sight of Helena in the hallway. Since the babies are all right, Helena is going into hiding. Donnie is only to tell Sarah where she is. She waddles out of the hospital with her butt checks showing from the hospital gown.
+<blockquote>
+<h5><strong>“</strong><strong>I want to know why I'm like this. And I don't want to go with you! I'm going with Rachel!” Kira  —Orphan Black</strong></h5>
+</blockquote>
+Sarah arrives at the rendezvous spot. Kira doesn’t want to go. Sarah tries to make her but Kira won’t budge.  Kira knows that M.K. is dead, “I don’t feel her anymore.” Sarah doesn’t want to listen to Kira and continues to try to get her in the van. Kira: “I want to know why I'm like this. And I don't want to go with you! I'm going with Rachel!” Sarah is stunned and looks for support from Siobhan and Felix, but they tell her she has to listen to Kira. Sarah is crushed and agrees to go back home. Rachel picks up Kira with a smug triumphant look on her face. Sarah looks completely defeated. Later that night Siobhan is home alone. Someone is knocking on her door; the last person in the world she expected to see is at her door. Delphine: “I'm not a ghost.”  Mrs. S: “Yeah, I heard.” Delphine (Evelyne Brochu) has something to tell her and Siobhan can’t tell Sarah.
+<p style="text-align: center;"><span style="color: #0000ff;"><strong>_________________________________</strong></span></p>
+Sarah Manning has experienced a lot of dark days, too many for me to attempt to list. This day is climbing up the chart with a bullet. Before they became self-aware, the clones were under close supervision of Neolution. They just didn’t know about it. Since they became self-aware, they have established some autonomy over themselves. That has been taken away from them now. Only Helena isn’t under their control, but she is in hiding. So now, the Clone Club is like an occupied country. To make things darker, Ferdinand has just brutally killed M.K. in some type of sexual revenge fantasy directed at Rachel for not smacking him around any longer. To top it off, Kira told Sarah she’d rather be with Sarah’s worst enemy than be with her. That has to be the most crushing blow for a parent. The wanting to be with Rachel over Sarah was Kira just being hurtful. The important thing out of this is Kira wanting to find out who she is, what is this power(s) that she has. I know that Sarah doesn’t want these people experimenting on Kira, but I can understand Kira needing to know. If this show was in the Marvel universe (Fox division), Kira and Helena's babies could be the origins of mutants. Maybe some baldheaded man will want to take them to his special school.
+
+Every week I forget Tatiana Maslany is playing all of these clones. There is an <a href="http://www.vulture.com/2017/06/tatiana-maslany-acting-masterclass.html">article in Vulture</a> about her acting process.  You should give it a read if you have time. The rest of the cast was great, but I would like to give special mention to James Frain. I hate Ferdinand, I hope Helena finds one of those long needles, and pins him into the ground with it, but his scene with M.K. was vicious and truly frightening. He seemed like a man who had completely lost his mind and relished in his cruelty for the moment. There have been many brutal deaths in this show, but this might have been the most brutal.
+<blockquote>
+<h5>Clone MVP: Helena</h5>
+</blockquote>
+<a href="http://www.business2community.com/entertainment/orphan-black-creators-discuss-01223632#MIedcScVHSiMTOcI.97"><img class="aligncenter wp-image-23851 size-full" src="http://nayahscifi.com/wp-content/uploads/2017/06/OrphanBlack_helena_s5ep2-e1498175326899.jpg" alt="" width="1021" height="514" /></a>
+
+Helena was the only bright spot in this episode, and if you pin a doctor with a long needle through their cheek, and you are the only bright spot in the episode, man, this was a dark one.
+
+<strong>Grade: A-</strong>

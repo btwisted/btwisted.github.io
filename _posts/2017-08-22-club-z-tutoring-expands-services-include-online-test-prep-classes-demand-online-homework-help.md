@@ -1,0 +1,24 @@
+---
+ID: 33795
+post_title: >
+  Club Z! Tutoring Expands Services to
+  Include Online Test Prep Classes and
+  On-Demand Online Homework Help
+author: NSF Staff
+post_excerpt: ""
+layout: post
+permalink: >
+  http://nayahscifi.com/2017/08/22/club-z-tutoring-expands-services-include-online-test-prep-classes-demand-online-homework-help/
+published: true
+post_date: 2017-08-22 18:52:40
+---
+<blockquote>
+<h5>It’s not uncommon for a student to need a little extra homework support in between weekly tutoring lessons, or more flexible options for test prep. That’s why we are confident these new online services will help us better meet the needs of our families.</h5>
+</blockquote>
+<p class="responsiveNews">For more than 20 years, Club Z! Tutoring has worked diligently to become North America’s premier in-home tutoring and test prep company, offering one-on-one tutoring in all subjects, for all grade levels, in the comfort and convenience of the student’s home. In recent years, Club Z! also added online tutoring and test prep services to its repertoire of educational services to better meet the needs of its students, and to complement the growing presence of technology in the classroom. Club Z!’s online tutoring and test prep services have been very well received, leading the tutoring firm to announce plans for expansion of its online services this fall – the addition of SAT and ACT classes and on-demand homework help.</p>
+<p class="responsiveNews">Club Z! Vice President, Cari Diaz, offered this about the new online services, “We’re very excited about our online test prep classes and online homework help. Our tutors, both in-home and online, are top-notch educators who truly enjoy helping students succeed. In fact, with our in-home tutoring model, students often improve a letter grade or two after just a few weeks of tutoring. But it’s not uncommon for a student to need a little extra homework support in between weekly tutoring lessons, or to need more flexible options for SAT and ACT Prep. That’s why we are confident that these new online services will help us better meet the needs of the families we serve.”</p>
+<p class="responsiveNews">Starting Monday, September 18, 2017, Club Z!’s new online, on-demand homework help will offer virtual tutoring in math, science and Language Arts for students in grades 4-12. The on-demand homework help program will be available Monday through Thursday from 6 pm to 10 pm Eastern initially, but Club Z! plans to expand access in the first quarter of 2018. New and existing in-home tutoring clients can add the unlimited online homework help for as little as $99 per month. But as an extra incentive, families who are currently enrolled with Club Z! for a minimum of 3 hours per week of in-home lessons will receive the added online homework help program for FREE!</p>
+<p class="responsiveNews">Club Z!’s online virtual tutoring platform has easy-to-use pen and paper-like capabilities. Students can easily upload homework assignments and work through problems using real-time audio and video, a digital whiteboard, and screen and document sharing. In addition, all of Club Z!’s online tutors must meet the same stringent vetting requirements as their in-home counterparts – including a thorough reference check, validation of teaching credential and relevant tutoring experience, and successful completion of a criminal background check.</p>
+<p class="responsiveNews">Club Z! online tutors will use this same virtual classroom platform to offer small group online ACT and SAT prep classes beginning September 3, 2017 for ACT and September 9, 2017 for SAT, respectively. These online test prep classes will be offered on Saturdays and Sundays each month, in 3-hour lesson blocks, throughout the 2017-18 school year. Students that enroll in one of Club Z!’s online test prep classes will receive a comprehensive diagnostic test with projected score and detailed answer analysis, access to a full suite of online curriculum and assignments, 12 hours of live online instruction with a top test prep tutor, and all sessions are recorded in HD for future playback and added review.</p>
+<p class="responsiveNews">Results from the summer 2017 pilot classes were very positive. Adds Diaz, “The weekend classes really help meet the demands of our families with busy schedules. Many of the clients who enroll in our online classes are student athletes or have other extracurricular or work commitments, so the weekend scheduling, and the opportunity to watch the recorded playback of the lessons, offer big advantages to these students and their families.”</p>
+<p class="responsiveNews">For information on how to enroll in an online test prep class, visit <a title="Online SAT and ACT Prep Classes" href="https://clubztutoring.com/test-preparation/online-classes/" rel="nofollow">https://clubztutoring.com/test-preparation/online-classes/</a>. Or to find an in-home tutor near you, call 800-434-2582.</p>

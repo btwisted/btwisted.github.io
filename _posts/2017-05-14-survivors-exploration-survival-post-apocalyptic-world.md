@@ -1,0 +1,33 @@
+---
+ID: 15062
+post_title: 'The Survivors: An Exploration of Survival in a Post Apocalyptic World'
+author: 'BeLinda Nichols | Founder &amp; Chief'
+post_excerpt: ""
+layout: post
+permalink: >
+  http://nayahscifi.com/2017/05/14/survivors-exploration-survival-post-apocalyptic-world/
+published: true
+post_date: 2017-05-14 18:00:27
+---
+<a href="http://amzn.to/2q230jX"><i><span style="font-weight: 400;"><img class="alignleft size-full wp-image-15334" src="http://nayahscifi.com/wp-content/uploads/2017/05/nickFarmer_headshot-1.jpg" alt="" width="300" height="300" />The Survivors</span></i></a><span style="font-weight: 400;"> by <a href="http://www.nickfarmerlinguist.com/">Nick Farmer</a> weaves a nuanced tale of life in a post apocalyptic world. I’m not a huge fan of this genre. The stories are usually too dark and gory for my taste. I especially dislike post apocalyptic stories that focus on brain eating zombies and the humans who fight to the bitter end to protect what’s left of their world. Not to say those storylines don't make great movie franchises, but when I see them munching on a human brain —I'm out!</span>
+
+<span style="font-weight: 400;">But </span><i><span style="font-weight: 400;">The Survivors</span></i><span style="font-weight: 400;"> was a pleasant surprise. Farmer, creator of the Belter <a href="http://nayahscifi.com/nick-farmer-creator-of-the-expanse-belter-language-talks-the-art-of-language-invention/">conlang</a> for Syfy’s <i><a href="http://www.syfy.com/theexpanse">The Expanse</a>,</i> offers an interesting and fresh take on the genre. There are no brain eating zombies or gratuitous violence. Instead Farmer weaves a tale rife with timely social allegories that highlight genetic engineering, transhumanism, and notions of survival.   </span>
+
+<span style="font-weight: 400;">The main protagonist, Daniel, is a typical New Yorker battling the daily grind of living in a big city. After returning home from a trip he takes a nap and wakes up weeks later to discover a majority of the population has been wiped out by a deadly virus. Some of the remaining population were not affected. Others contracted the virus, but survived it to become something different. Daniel is one of these survivors. Daniel’s journey in this new world order provides a glimpse of what survival truly means.  Is merely surviving a life worth living? Do some have more rights than others to survive? And if so, who determines who lives or dies? Daniel and those like him face those questions everyday. How they respond to those questions makes a riveting tale.</span>
+<blockquote>
+<h5 class="p1"><span class="s1">“ . . .Anyone they aren't 100% sure is clean, they shoot on sight. And even when they're sure, they might shoot anyway, just to be safe. Maybe they think if they kill us all, the virus will just go away.”</span><img style="border: none !important; margin: 0px !important;" src="https://ir-na.amazon-adsystem.com/e/ir?t=nayah099-20&amp;l=li3&amp;o=1&amp;a=B06XRL5SDV" alt="" width="1" height="1" border="0" /></h5>
+</blockquote>
+<p class="p1">While reading the book, I considered these questions as they relate to my world. <span style="font-weight: 400;">As a person of color, I constantly grapple with issues of injustice. When you have less power, for whatever reason, you are vulnerable to the whims of those with power. The powerful can determine if you live or die, whether through violence or policy. Survival manifests in many forms—from the single mother working for less than minimum wage to care for her children, or to an orphan who lives in a worn torn country without food or shelter. Each one faces the daily struggle to survive. In both scenarios, they could wonder if merely surviving is a life worth living.</span><img style="border: none !important; margin: 0px !important;" src="https://ir-na.amazon-adsystem.com/e/ir?t=nayah099-20&amp;l=li2&amp;o=1&amp;a=B072BBQX5C" alt="" width="1" height="1" border="0" /></p>
+<span style="font-weight: 400;">Although Farmer’s book is less than a hundred pages, he masterfully paints a landscape of misery and despair. The action moves at the right pace, and the characters are believable and engaging. After I finished I wanted to know more about the characters and how they will continue to survive. Farmer could definitely create a novel series. And I wouldn’t be surprised if it eventually becomes a TV series or a movie. Do yourself a favor. Go pick up a copy of </span><i><span style="font-weight: 400;">The Survivors</span></i><span style="font-weight: 400;">. It's a quick read that will leave you wanting more.</span>
+<table>
+<tbody>
+<tr>
+<td><iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B06XRL5SDV&amp;asins=B06XRL5SDV&amp;linkId=208bbf0612c0c10efc207c9c901f5124&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe></td>
+<td><iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B01AHWLX24&amp;asins=B01AHWLX24&amp;linkId=ce2d19e1ff38831a03c7650323d4b07e&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe></td>
+<td><iframe style="width: 120px; height: 240px;" src="//ws-na.amazon-adsystem.com/widgets/q?ServiceVersion=20070822&amp;OneJS=1&amp;Operation=GetAdHtml&amp;MarketPlace=US&amp;source=ss&amp;ref=as_ss_li_til&amp;ad_type=product_link&amp;tracking_id=nayah099-20&amp;marketplace=amazon&amp;region=US&amp;placement=B072BBQX5C&amp;asins=B072BBQX5C&amp;linkId=9809f2df78511733a1f2711aa9f1fc62&amp;show_border=true&amp;link_opens_in_new_window=true" width="300" height="150" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe></td>
+</tr>
+</tbody>
+</table>
+Here's my interview with Nick Farmer. We talk more about <em>The Survivors</em> and his experience with writing the Belter conlang for Syfy’s <em>The Expanse</em>.
+
+https://youtu.be/xz3TdfRB1p0

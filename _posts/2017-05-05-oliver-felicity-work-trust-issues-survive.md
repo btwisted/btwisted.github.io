@@ -1,0 +1,77 @@
+---
+ID: 14015
+post_title: 'Arrow: Oliver and Felicity Work Through Trust Issues To Survive'
+author: >
+  Anthony (Kbear!) Nichols | Senior
+  Contributor
+post_excerpt: ""
+layout: post
+permalink: >
+  http://nayahscifi.com/2017/05/05/oliver-felicity-work-trust-issues-survive/
+published: true
+post_date: 2017-05-05 20:51:29
+---
+<span style="color: #000000; font-family: arial, helvetica, sans-serif; font-size: 12px;"><strong>Title</strong>: “Arrow Season 5 Episode 20: Underneath<em>”</em></span>
+<span style="font-family: arial, helvetica, sans-serif; font-size: 12px; color: #000000;"> <strong>Genre</strong>: Superhero fiction, Drama, Action, Crime, Mystery</span>
+<span style="color: #000000; font-family: arial, helvetica, sans-serif; font-size: 12px;"><strong>Platform</strong>: TV – The CW</span>
+<span style="color: #000000; font-family: arial, helvetica, sans-serif; font-size: 12px;"> <strong>Director</strong>: Wendey Stanzler</span>
+<span style="color: #000000; font-family: arial, helvetica, sans-serif; font-size: 12px;"> <strong>Writer</strong>: Wendy Mericle &amp; Beth Schwartz</span>
+<span style="color: #000000; font-family: arial, helvetica, sans-serif; font-size: 12px;"> <strong>Rating</strong>: TV-PG </span>
+<span style="color: #000000; font-family: arial, helvetica, sans-serif; font-size: 12px;"> <strong>Release</strong>: May 3, 2017</span>
+<span style="font-family: arial, helvetica, sans-serif; font-size: 12px; color: #000000;"> <strong>Cast:</strong> Stephen Amell, David Ramsey, Emily Bett Rickards</span>
+
+<span style="font-weight: 400;">Oliver (Stephen Amell) looks around the room; it appears there isn’t much damage. Felicity (Emily Bett Rickards) says, “It was an EMP”. It only damaged electronic circuits like the device in her spine. She can’t feel her legs. Adrian Chase (Josh Segarra) has trapped them, if he wasn’t evil, Felicity would be impressed.</span>
+<blockquote>
+<h5><strong>“Seems like Cisco spent so much time making this place impenetrable, he’s turned it into an impenetrable death trap.” Felicity Smoak  — <em>Arrow</em></strong></h5>
+</blockquote>
+<span style="font-weight: 400;">Lance (Paul Blackthorne) is telling Rene (Rick Gonzalez) the defense attorneys’ are trying to get Chase’s convictions overturned. He is convening a war room to deal with the issue but they need the Mayor, but no one can find him. Rene contacts Curtis (Echo Kellum). He is outside the Arrow cave. All of the power is out. He tells Rene that he hears explosions. Inside the bunker, Oliver is shooting explosives at the door. Felicity says to Oliver, “Seems like Cisco spent so much time making this place impenetrable, he’s turned it into an impenetrable death trap.” Oliver thinks Chase has trapped them for something big. He is afraid Chase might be after his son.</span>
+<blockquote>
+<h5><strong>“I can’t believe you actually compared Team Arrow to this clandestine government sewer agency.” John Diggle— <em>Arrow</em></strong></h5>
+</blockquote>
+<span style="font-weight: 400;">John Diggle (David Ramsey) is sleeping on the couch. Lyla (Audrey Marie Anderson) walks in. Diggle: “If you’re just going to stand there, you might as well say something.” Lyla: “I thought you were sleeping.” They continue their argument about the relative morality of Team Arrow vs. ARGUS. Lyla doesn’t think ARGUS, comparatively speaking, does any worse than Team Arrow. John disagrees, “I can’t believe you actually compared Team Arrow to this clandestine government sewer agency.” Before they can really get started, Rene and Dinah (Juliana Harkavy) interrupt them. Something is wrong at the bunker.</span>
+
+<span style="font-weight: 400;">Oliver wants to climb up the elevator shaft. Felicity advises him not to, she thinks Chase probably bobby-trapped it. Oliver doesn’t listen and starts climbing. Of course, Felicity was right and Oliver comes crashing down on a big screw. Felicity sews him up and tells him “I told you so” in different variations. She brings up Oliver not having her play with Helix, because he doesn’t trust her. Oliver states that he trusts her and he will go with any plan of escape she has. At John and Lyla’s home, Curtis tells the team that an EMP took out the power. He names the items they will need to free Oliver and Felicity. Lyla promises ARGUS is at their disposal if it is all right with John. Diggle rolls his eyes. Curtis estimates that Felicity and Oliver have maybe 5 or 6 hours of air down in the bunker.</span>
+
+<img class="size-medium wp-image-14185 aligncenter" src="http://nayahscifi.com/wp-content/uploads/2017/05/arrow_curtis_lena_ep20-850x478.png" alt="" width="850" height="478" />
+
+<span style="font-weight: 400;">Since the EMP has fried all the electrical circuits in the bunker, Felicity uses Oliver’s old motorcycle (good old-fashioned combustion engine) to generate enough power to jump-start the computer chip in the mainframe. Team Arrow is on site. Rene and Curtis are climbing down and arguing. Dinah jokes with Diggle, “I swear those two are going to make the cutest couple one day.” Lyla walks in with more supplies for the rescue. Below them, Oliver and Felicity are arguing about Helix and Bratva. Felicity thinks Helix is the lesser evil. Oliver gives her his standard reason why he was against her working with Helix. He doesn’t want her to become him.</span>
+
+<span style="font-weight: 400;">She is tired of hearing that. The motorcycle overheats and it causes a minor explosion. Felicity reports to Oliver, “One of the pipes is damaged; I just hope it’s not the highly flammable, poison gas pipe.” Of course, the damage </span><i><span style="font-weight: 400;">is </span></i><span style="font-weight: 400;">to the methane gas pipe.</span>
+
+<span style="font-weight: 400;">Oliver tries to make repairs with duct tape, but the pipe gets a leak and they run out of duct tape. If they don’t do something, they will asphyxiate in 20 minutes! Oliver looks over a blueprint and finds a steam tunnel entrance behind a bench, but they can’t open the door. Felicity has a plan. Rene starts drilling the titanium hatch that covers the bunker. Curtis notices something and gets Rene out of the way of the fire. The methane gas has seeped up and if they try to drill, it will cause an explosion. Dinah has an idea she gained from going undercover with safecrackers, use hydrochloric acid on the titanium hatch to get through. Down below, Felicity’s plan is to have Oliver shoot an arrow with explosives at the main door, but she has to calculate how much explosives to use because if it is too much, it will cause the methane to explode. Oliver also has to hit the door in the right spot. Felicity isn’t too sure about her math. Oliver: “Are you still Felicity Smoak?”</span> <span style="font-weight: 400;">She confirms she is. “Your math is always right.” He shoots the arrow and the door blows open.</span>
+<blockquote>
+<h5><strong>“I’m not the man you think I am; I’m not the man you fell in love with.” Oliver Queen — <em>Arrow</em></strong></h5>
+</blockquote>
+<span style="font-weight: 400;">The acid is not working fast enough, so Lyla brings a stolen copy of Curtis’ T-Spheres. Diggle is more upset about this than Curtis is. Oliver carries Felicity on his back down to the tunnel. Oliver passes out; he has lost a lot of blood. When he regains consciousness he confesses it was not about not trusting her, he doesn’t trust himself. “I’m not the man you think I am. I’m not the man you fell in love with.” While being held in captivity, Chase showed him that he pursued his crusade because he likes killing. Oliver fades away again as Felicity tries to wake him up.</span>
+
+<span style="font-weight: 400;">John and Lyla talk, she asks why he can’t support her like he supports Oliver. She doesn’t always agree with what he does but she trusts him. John thinks about it and sees her point. Curtis interrupts, he just thought of a way to rescue Felicity and Oliver.</span>
+<blockquote>
+<h5><strong>Oliver: “Adrian Chase didn’t make me a killer.” Felicity: “No, five years in hell did that. Five years dealing with this city’s worst did that. You spent a decade dealing with horrors that most people don’t even realize exist and the fact it didn’t turn you into a monster proves exactly the kind of person that you are.” — <em>Arrow</em></strong></h5>
+</blockquote>
+<span style="font-weight: 400;">Oliver wakes up. Felicity has some thoughts on what Oliver said before he passed out. Felicity: “I wouldn’t have fallen in love with you or wanted to marry you if I didn’t know exactly the kind of man you are. Anyone would’ve admitted to being a tap dancing flamingo after what he put you through.” Oliver: “Adrian Chase didn’t make me a killer.” Felicity: “No, five years in hell did that. Five years dealing with this city’s worst did that. You spent a decade dealing with horrors that most people don’t even realize exist and the fact it didn’t turn you into a monster proves exactly the kind of person that you are.” The T-Sphere blasts a hole in front of Oliver and Felicity. Curtis has some more bad news for them, the generator will come back on, with the methane, if they can’t open the air vents; they are sitting on a four-story bomb.</span>
+
+<span style="font-weight: 400;">Oliver faints again, (not from the news, but from loss of blood, or at least that’s what he wants you to think) Curtis put 20 ccs of adrenaline through the T-Sphere hole for Oliver. Felicity jams it into his chest and it jolts him back up. Diggle climbs down to Oliver and Felicity, on an unstable ladder. Felicity is on Oliver’s back; he has to climb further up and then jump and let Diggle catch them</span><b>.</b> Felicity: “I’ve always appreciated you doing the salmon ladder, but never as much as in this moment.”<span style="font-weight: 400;"> Felicity slips off; Oliver catches her hand. She tells him to let her drop so he can save himself, he doesn’t. Diggle holds Oliver’s hand; Oliver holds Felicity’s hand. Oliver is able to get her back around his shoulder and the rest of Team Arrow pulls them to safety.</span>
+
+<span style="font-weight: 400;">John apologizes to Lyla. He recognizes both of them work in morally grey areas. They will work this out. Oliver is out of surgery and he asks to see Felicity. Thanks to Curtis fixing the device in her spine, she can walk over to see Oliver. Felicity apologizes to Oliver for being a hypocrite and judging him. She wanted to get Prometheus so badly that she was willing to break any rule. Her drive for revenge gave her a little taste of what Oliver’s been through. He thanks her. She advises him to take the time to figure out who he is.</span>
+<blockquote>
+<h5><strong>“I knew your father…and he knew mine.” Adrian Chase — <em>Arrow</em></strong></h5>
+</blockquote>
+<span style="font-weight: 400;">William (Jack Moore) gets off a school bus. Chase is there to greet him. He tells Oliver’s son, </span><b>“</b>I knew your father…and he knew mine.”
+
+<span style="font-weight: 400;">The flashback this episode is 11 months ago, a short time after they defeated Damien Darhk.</span>
+<blockquote>
+<h5><b> “I love you, but that is why I can’t settle for anything less than your full trust. Felicity Smoak <strong>— <em>Arrow</em></strong></b></h5>
+</blockquote>
+<span style="font-weight: 400;">Felicity is trying to get Oliver to recruit a team. They flirt and banter, and nearly kiss before Curtis walks in. Curtis thinks they are getting back together. Felicity tells Curtis their problem is Oliver doesn’t trust her with crucial information, i.e. William. Curtis leaves them with Chinese food and wine to get them back together. It must be working because they are totally flirting as Oliver tries to show Felicity how to do a chin-up. He demonstrates by doing the salmon ladder. After holding her up to do a chin-up, they look deeply into each other’s eyes and Felicity kisses him. They start taking each other’s shirts off and begin procreating. During their post-coital glow, Felicity breaks the mood by telling him this doesn’t change their problems; Oliver still doesn’t trust her. </span><b>Felicity: “I love you, but that is why I can’t settle for anything less than your full trust.”</b><span style="font-weight: 400;"> They agree they aren’t ready for the talk yet. (That happens 11 months later).</span>
+<p style="text-align: center;"><strong><span style="color: #0000ff;">_________________________________</span></strong></p>
+<span style="font-weight: 400;"> The episode basically took place in one location, the Arrow Cave, both in the present and 11 months ago. During both time periods, Felicity and Oliver are discussing trust. Felicity doesn’t think Oliver really trusts her. There is plenty of evidence to support her hypothesis. Not telling her about William, not supporting her working with Helix, (which he was right about), and even climbing up the elevator shaft when she was sure Chase would booby-trap it. What Felicity didn’t know until now was that it wasn’t Felicity he didn’t trust, it was himself. Especially after Adrian got into his head. This episode suggests Oliver and Felicity will have real trust between themselves in the future, creating a stronger relationship. Sorry Olicity haters. If they do get back together, and that is a big if, maybe the writers have figured out how to write them as a couple without all the artificial drama. I like them together, Stephen Amell and Emily Bett Rickards still have great chemistry together, but if the characters don’t get back together, I’m cool with that.</span>
+
+<span style="font-weight: 400;">Lyla and John are having their own trust issues. John is doubting Lyla’s leadership of ARGUS and whether she is letting it turn her into another Amanda Waller. No one can reach the late Amanda Waller’s level of evil. Lyla does some shady actions as the ARGUS chief, and she needs someone to hold her accountable, but I don’t think that is John’s job. He is her husband, not the head of a select congressional committee. He would have a stronger leg to stand on if he wasn’t Oliver’s right hand man. If he wants to keep Lyla from slipping into Amanda Waller-hood, be loving and supportive. Offer her sound counsel if she asks for it, and don’t be a pompous ass when you give it.</span>
+
+<span style="font-weight: 400;">The new recruits in Team Arrow really proved their worth. They took an active part in Oliver and Felicity’s rescue, and their knowledge and skills came in handy. Without them, Oliver and Felicity would not have made it. Felicity was right in encouraging him to get a team. The team this season has made Oliver a better person and I believe he has been a positive influence on them. This proves Prometheus completely wrong.</span>
+
+<span style="font-weight: 400;">This was a bottle episode, so they didn’t use too many locations, mostly staying in the bunker. Aside from William appearing in the end, it was just the regular cast and Lyla. This allowed them to explore the relationship between Oliver and Felicity closely, and we got to see how the team interacts with each other. The team has a nice chemistry. The episode was tense, but it was also humorous. Curtis was funny this episode without going overboard. There weren’t a lot of action set pieces, but the stunt work was great in the final rescue scene. One of my favorite episodes of the season.</span>
+
+<strong>Grade: A</strong>
+
+&nbsp;
