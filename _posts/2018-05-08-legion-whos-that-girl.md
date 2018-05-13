@@ -20,6 +20,8 @@ post_date: 2018-05-08 00:23:04
 <span style="color: #000000; font-size: 12px;"> <strong>Release</strong>: May 1, 2018</span>
 <span style="color: #000000; font-size: 12px;"> <strong>Cast: </strong>Dan Stevens, Rachel Keller, Aubrey Plaza, Bill Irwin, Jean Smart, Jeremie Harris, Amber Midthunder, Jemaine Clement, Hamish Linklater, Navid Negahban</span>
 <span style="color: #000000; font-size: 12px;"> <strong>Feature image</strong>: <a href="https://img.thedailybeast.com/image/upload/d_placeholder_euli9k/dpr_2.0/c_limit,w_585/fl_lossy,q_auto/Screen_Shot_2018-05-02_at_1.48.04_AM_wytmwz">Source</a></span>
+
+<span style="color: #3366ff;">[Spoilers]</span>
 <blockquote>
 <h5><strong>“The end of the world is coming daddy. We don’t got a lot of time.” Lenny Busker - Legion</strong></h5>
 </blockquote>
