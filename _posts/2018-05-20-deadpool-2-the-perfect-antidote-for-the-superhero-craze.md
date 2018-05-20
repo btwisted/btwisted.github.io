@@ -11,7 +11,10 @@ permalink: >
 published: true
 post_date: 2018-05-20 13:15:10
 ---
-<p class="p1">Raunchy, bizarre with buckets of blood, cussing galore, and slap stick violence—Deadpool 2 was the perfect antidote for the superhero craze.  My dark little heart, that’s two sizes too small, loved it!</p>
+<span style="font-size: 12px;"><a href="https://wallpapersite.com/movies/deadpool-2-domino-deadpool-cable-josh-brolin-zazie-beetz-13121.html">Source image
+</a></span>
+
+Raunchy, bizarre with buckets of blood, cussing galore, and slap stick violence—Deadpool 2 was the perfect antidote for the superhero craze.  My dark little heart, that’s two sizes too small, loved it!
 <p class="p1">Unlike more serious fare (ahem, Avengers Infinity War I’m looking at you!} I enjoyed this movie, like a fat kid loves cake.<span class="Apple-converted-space">  </span>I’m biased.</p>
 <p class="p1">Ryan Reynolds and director David Leitch created a tour de force in the sequel to Marvel’s infamous and uber popular "merc with a mouth", <a href="https://en.wikipedia.org/wiki/Deadpool_(film)">Deadpool</a>. Ryan Reynolds inhabits <a href="https://en.wikipedia.org/wiki/Deadpool">Wade Wilson</a> much like Robert Downey Jr. inhabits <a href="https://en.wikipedia.org/wiki/Iron_Man">Tony Stark</a>. He commits to the make-up and character. I could never see anyone else playing Deadpool.</p>
 <p class="p1">Usually a sequel is never as good as the original, yet there is that rare movie; NO not a movie, a film, that rockets past its original and fulfills the promise of the narrative and source material at the same time! DC and Warner Bros. should be taking notes. As a matter of fact Wade Wilson (Ryan Reynolds) has several sick burns for the DC Cinematic Universe and everybody else. I’m going to try hard not to spoil the movie, but there might be some <span style="font-size: 20px; color: #0000ff;">spoilers ahead</span>.</p>
