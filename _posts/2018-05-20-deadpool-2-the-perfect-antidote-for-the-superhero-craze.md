@@ -2,7 +2,7 @@
 ID: 191818
 post_title: >
   Deadpool 2—the perfect antidote for
-  the superhero craze.
+  the superhero craze
 author: NSF Staff
 post_excerpt: ""
 layout: post
