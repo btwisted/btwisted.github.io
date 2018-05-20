@@ -3,7 +3,7 @@ ID: 191818
 post_title: >
   Deadpool 2—the perfect antidote for
   the superhero craze
-author: NSF Staff
+author: Omar Todd
 post_excerpt: ""
 layout: post
 permalink: >
