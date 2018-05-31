@@ -25,27 +25,16 @@ mixpanel.init(e85795277988470ef73969a53a1f8056);</script><!-- end Mixpanel -->
  </head>
   <body>
     <h1>We'll be right back!</h1>
-
-    <!-- jQuery (necessary for Bootstrap's JavaScript plugins) -->
-    <script src="https://ajax.googleapis.com/ajax/libs/jquery/1.12.4/jquery.min.js"></script>
-    <!-- Include all compiled plugins (below), or include individual files as needed -->
-    <script src="js/bootstrap.min.js"></script>
-    
-    <script type="text/javascript">
-    mixpanel.track("Page view");
-</script>
-    
-<h2>External JavaScript</h2>
-
-<p id="demo">A Paragraph.</p>
-
+<p id="demo">A Paragraph</p>
 <button type="button" onclick="myFunction()">Try it</button>
 
-<p>(myFunction is stored in an external file called "myScript.js")</p>
-
-<script src="myScript.js"></script> 
-mixpanel.track("Page view"); 
-    
+<script>
+function myFunction() {
+   document.getElementById("demo").innerHTML = "Paragraph changed.";
+   mixpanel.track("Page view"); 
+}
+</script>
+      
     
 </body>
 </html>
