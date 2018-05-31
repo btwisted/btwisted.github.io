@@ -35,12 +35,15 @@ mixpanel.init(e85795277988470ef73969a53a1f8056);</script><!-- end Mixpanel -->
     mixpanel.track("Page view");
 </script>
     
-<h2>What Can JavaScript Do?</h2>
+<h2>External JavaScript</h2>
 
-<p id="demo">JavaScript can change HTML content.</p>
+<p id="demo">A Paragraph.</p>
 
-<button type="button" onclick='document.getElementById("demo").innerHTML = "Hello JavaScript!"'>Click Me!</button> 
-    
+<button type="button" onclick="myFunction()">Try it</button>
+
+<p>(myFunction is stored in an external file called "myScript.js")</p>
+
+<script src="myScript.js"></script> 
 mixpanel.track("Page view"); 
     
     
