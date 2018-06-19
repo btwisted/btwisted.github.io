@@ -11,15 +11,15 @@ permalink: >
 published: true
 post_date: 2018-06-19 03:38:18
 ---
-<strong>Title</strong>: Legion Season 2 Episode 9: "Chapter 17"
-<strong>Genre</strong>: Action, Adventure, Drama, Fantasy, Science Fiction, Superhero
-<strong>Platform</strong>: TV - FX
-<strong>Director: </strong>Noah Hawley
-<strong>Writer</strong>: Noah Hawley &amp; Nathaniel Halpern
-<strong>Rating</strong>: TV-MA
-<strong>Release</strong>: May 29, 2018
-<strong>Cast: </strong>Dan Stevens, Rachel Keller, Aubrey Plaza, Bill Irwin, Jean Smart, Jeremie Harris, Amber Midthunder, Jemaine Clement, Hamish Linklater, Navid Negahban
-<strong>Feature image</strong>: <a href="https://i.kinja-img.com/gawker-media/image/upload/s--Q8Ozz_gh--/c_scale,f_auto,fl_progressive,q_80,w_800/pxrwozcus21xh07qhgha.png">Source</a>
+<span style="color: #000000; font-size: 12px;"><strong>Title</strong>: Legion Season 2 Episode 9: "Chapter 17"</span>
+<span style="color: #000000; font-size: 12px;"><strong>Genre</strong>: Action, Adventure, Drama, Fantasy, Science Fiction, Superhero</span>
+<span style="color: #000000; font-size: 12px;"><strong>Platform</strong>: TV - FX</span>
+<span style="color: #000000; font-size: 12px;"><strong>Director: </strong>Noah Hawley</span>
+<span style="color: #000000; font-size: 12px;"><strong>Writer</strong>: Noah Hawley &amp; Nathaniel Halpern</span>
+<span style="color: #000000; font-size: 12px;"><strong>Rating</strong>: TV-MA</span>
+<span style="color: #000000; font-size: 12px;"><strong>Release</strong>: May 29, 2018</span>
+<span style="color: #000000; font-size: 12px;"><strong>Cast: </strong>Dan Stevens, Rachel Keller, Aubrey Plaza, Bill Irwin, Jean Smart, Jeremie Harris, Amber Midthunder, Jemaine Clement, Hamish Linklater, Navid Negahban</span>
+<span style="color: #000000; font-size: 12px;"><strong>Feature image</strong>: <a style="color: #000000;" href="https://i.kinja-img.com/gawker-media/image/upload/s--Q8Ozz_gh--/c_scale,f_auto,fl_progressive,q_80,w_800/pxrwozcus21xh07qhgha.png">Source</a></span>
 
 <span style="color: #3366ff;">[Spoilers]</span>
 <blockquote>
