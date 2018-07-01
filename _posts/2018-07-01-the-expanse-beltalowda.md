@@ -19,7 +19,7 @@ post_date: 2018-07-01 19:49:55
 <span style="font-size: 12px; color: #000000;"> Rating: TV-14</span>
 <span style="font-size: 12px; color: #000000;"> Release: June 6, 2018</span>
 <span style="font-size: 12px; color: #000000;"> Cast: Steven Strait, Shohreh Aghdashloo, Frankie Adams, Cas Anvar, Wes Chatham, Dominique Tipper</span>
-<span style="font-size: 12px; color: #000000;"> Feature image: <a href="http://cdn2us.denofgeek.com/sites/denofgeekus/files/styles/main_wide/public/2018/06/the-expanse-season-3-episode-9-intransigence-cara-gee-syfy.jpg?itok=ZZ6AB5ew">Source</a></span>
+<span style="font-size: 12px; color: #000000;"> Feature image: <a style="color: #000000;" href="http://cdn2us.denofgeek.com/sites/denofgeekus/files/styles/main_wide/public/2018/06/the-expanse-season-3-episode-9-intransigence-cara-gee-syfy.jpg?itok=ZZ6AB5ew">Source</a></span>
 
 <span style="color: #3366ff;"><strong>[Spoilers]</strong></span>
 <blockquote>
